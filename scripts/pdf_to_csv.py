@@ -95,7 +95,8 @@ for pdf_file in Path(PDF_DIR).glob("*.pdf"):
 
         if email:
             #Add path to be used in md
-            email["File"] = pdf_file
+            email["Path"] = pdf_file
+            email["FileName"] = os.path.basename(pdf_file)
 
             #ungodly section for trying to remove in-line mail replies and signatures:
             if email["Content"]:
@@ -131,7 +132,7 @@ for pdf_file in Path(PDF_DIR).glob("*.pdf"):
 
 # Save CSV
 with open(CSV_FILE, "w", newline="", encoding="utf-8") as f:
-    writer = csv.DictWriter(f, fieldnames=["File","From", "To", "Sent", "Subject", "Content"], quoting=csv.QUOTE_ALL)
+    writer = csv.DictWriter(f, fieldnames=["Path","FileName","From", "To", "Sent", "Subject", "Content"], quoting=csv.QUOTE_ALL)
     writer.writeheader()
     for email in sorted_emails:
         writer.writerow(email)
