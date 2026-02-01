@@ -8,9 +8,11 @@ import os
 from dateutil import parser 
 from datetime import timezone
 from datetime import date
+import json
 
 PDF_DIR = os.environ['PDF_DIR']
 CSV_FILE = os.environ['CSV_FILE']
+STATS_FILE= os.environ['STATS_FILE']
 
 def clean_text(text):
     # Remove soft line breaks, encoding artifacts
@@ -25,6 +27,7 @@ def normalize_date(date_str):
     try:
         dt = parser.parse(date_str, fuzzy=True)
         # If timezone is missing, assume UTC
+        # TODO: fix warning
         if dt.tzinfo is None:
             dt = dt.replace(tzinfo=timezone.utc)
         else:
@@ -35,8 +38,8 @@ def normalize_date(date_str):
 
 def parse_first_email(text):
     """
-    Extract From, To, Sent/Date from the PDF text, regardless of header order.
-    Returns the first occurrence of each header.
+    Extract From, To, Sent, Subject, and mail Content from the PDF text,
+    regardless of header order. Returns the first occurrence of each header.
     """
     headers = {"From": "", "To": "", "Sent": "", "Subject": "", "Content": ""}
     lines = text.splitlines()
@@ -77,7 +80,7 @@ def parse_first_email(text):
 
         # If all header fields are found, the rest is content baby
         if headers["From"] and headers["To"] and headers["Sent"]:
-            headers["Content"] += " " + clean_text(line)
+            headers["Content"] += " \n" + clean_text(line)
             continue
 
     # Return None if From or To or Sent is missing
@@ -87,19 +90,25 @@ def parse_first_email(text):
 
 # Process PDFs
 emails = []
+total_emails = 0
+failed = []
 
 for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
+
+        total_emails += 1
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages)
         email = parse_first_email(full_text)
 
-        if email:
+        if not email:
+            failed.append(f"{pdf_file}")
+            print(f"Failed to parse {pdf_file}");
+        else:
             #Add path to be used in md
             email["Path"] = pdf_file
             email["FileName"] = os.path.basename(pdf_file)
-            print("Parsed ", email["Path"])
 
-            #ungodly section for trying to remove in-line mail replies and signatures:
+            # ungodly section for trying to remove in-line mail replies and signatures:
             if email["Content"]:
                 # Remove all those stars in epsteins signature 
                 email["Content"].replace("*", "")
@@ -125,7 +134,13 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
                     match = re.search(reply_regex, email["Content"], re.IGNORECASE)
                     if match:
                         email["Content"] = email["Content"][:match.span(0)[0]]
+                
+                # Remove after and including "Sent from my IPhone/IPad"
+                iphone_index= email["Content"].lower().find("sent from my i")
+                if iphone_index!= -1:
+                    email["Content"] = email["Content"][:iphone_index]
 
+            print(f"Successfully parsed {pdf_file} ");
             emails.append(email)
 
     ## Sort newest first:
@@ -137,5 +152,17 @@ with open(CSV_FILE, "w", newline="", encoding="utf-8") as f:
     writer.writeheader()
     for email in sorted_emails:
         writer.writerow(email)
+
+stats = {
+    "pdf": {
+        "successfull": len(sorted_emails),
+        "total": total_emails,
+        "failed": failed,
+    }
+}
+
+with open(STATS_FILE, "w") as f:
+    json.dump(stats, f, indent=4)
+
 
 print(f"Parsed {len(sorted_emails)} emails into {CSV_FILE}")

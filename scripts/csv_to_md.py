@@ -39,7 +39,7 @@ with open(MD_FILE, "w", encoding="utf-8") as f:
         f.write(f"### {r['Sent']}\n\n")
         f.write(f"**From:** {r['From']}\n\n")
         f.write(f"**To:** {r['To']}\n\n")
-        f.write(f"Subject: {r['Subject']}\n\n"),
+        f.write(f"**Subject**: {r['Subject']}\n\n"),
         f.write(f"{r['Content']}\n\n")
         f.write(f"[PDF]({r['Path']}) ")
         f.write(f"[Source](https://www.justice.gov/epstein/files/{find_data_set(r['FileName'])}/{r['FileName']})\n\n")

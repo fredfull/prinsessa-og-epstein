@@ -15,4 +15,4 @@ Example output:
 - `csv_to_md.py` creates a markdown file `README.md` from the csv. Expects env variables CSV_FILE (input file) and MD_FILE (output file).
 
 Run from project root:
-`export PDF_DIR="./pdfs/" && export CSV_FILE=messages.csv && export MD_FILE=README.md && ./scripts/pdf_to_csv.py && ./scripts/csv_to_md.py`
+`export PDF_DIR="./pdfs/" && export CSV_FILE=messages.csv && export MD_FILE=README.md && export STATS_FILE=stats.json && ./scripts/pdf_to_csv.py && ./scripts/csv_to_md.py`
