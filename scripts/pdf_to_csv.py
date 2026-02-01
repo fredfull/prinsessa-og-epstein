@@ -43,7 +43,7 @@ def normalize_date(date_str):
             return
 
     # Convert to UTC. Alphabetical sort = chronological sort now
-    timestamp_utc = timestamp.astimezone(timezone.utc).strftime("%Y-%m-%d %H:%M:%SZ")
+    timestamp_utc = timestamp.astimezone(timezone.utc).strftime("%Y-%m-%dT%H:%M:%S%z")
     return timestamp_utc
 
 
