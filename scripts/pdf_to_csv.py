@@ -97,7 +97,14 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
 
         total_emails += 1
-        full_text = "\n".join(page.extract_text() or "" for page in pdf.pages)
+
+        ## I assume that the first mail message exists within the first two pages of the pdf
+        full_text = "\n".join(page.extract_text() or "" for page in pdf.pages[:2])
+
+        # For transparancy, add a disclaimer that there are removed pages here:
+        if len(pdf.pages) > 2:
+            full_text += "\n ** Pages has been removed, see source for all pages **"
+
         email = parse_first_email(full_text)
 
         if not email:
