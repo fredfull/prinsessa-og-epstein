@@ -1,6 +1,6 @@
 # Email Correspondence
 
-### 2019-12-03T16:45:19+00:00
+### 2019-12-03 16:45:19Z
 
 **From:** ' (NY) (FBI)
 
@@ -45,7 +45,7 @@ EFTA00148003
 
 ---
 
-### 2014-06-16T10:22:34+00:00
+### 2014-06-16 10:22:34Z
 
 **From:** H.K.H. ICronprinsessen" ctl
 
@@ -59,7 +59,7 @@ Wherever u r awake
 
 ---
 
-### 2014-06-14T11:40:38+00:00
+### 2014-06-14 11:40:38Z
 
 **From:** H.K.H. ICronprinsessen" <
 
@@ -73,7 +73,23 @@ Call me
 
 ---
 
-### 2013-01-16T20:21:00+00:00
+### 2013-06-22 14:05:48Z
+
+**From:** Jeffrey Epstein leevacation@gmail.com>
+
+**To:** H.K.H. Mette Kronprinsessen
+
+**Subject**: Re: Princess Mette
+
+To: 
+Cc: "H. K.H. Kronprinsessen" <I MM> 
+I think she has TGE wrong Monday , ask her if this thurs works
+
+[PDF](test/pdf/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
+
+---
+
+### 2013-01-16 20:21:00Z
 
 **From:** H.K.H. Kronprinsessen" ctl
 
@@ -87,7 +103,54 @@ Yes u?
 
 ---
 
-### 2012-10-21T23:27:04+00:00
+### 2012-11-26 22:05:31Z
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey <ieevacationRcimail com>
+
+**Subject**: Fwd: Priv & Cont: Nov. 26-30
+
+Cc: 
+Barnett , Lynn 
+Fontanilla Lynn and ojo 
+TONIGHT: 
+4:30pm Depart Chicagof or NY 
+6:45pm Arrive Teterboro, Atlantic Aviation 
+Tues. Nov. 27-NY-Paris 
+I I Appt w/Mcira 
+(6:10pm to arrive CDG, Paris (RecordL oc# ~cell. 
+aldson to pick up from aitport.) 
+7:10pm JE andEto depart via Air France #7f rom JFK (Record 
+Loct 
+Wed. Nov. 28-Paris 
+-Reminder: Yoni & Nili to be in NY for the Saban Forum (Barak as well?) 
+-Wednesday Night; Jack, Lang 
+-Reminder Ian and Simon Nurray in Paris Wed. 
+-Reminder: Doris 
+EFTA_R1_00820822 
+EFTA02154707 
+8:25am Arrive CDG 
+Thurs. Nov. 29-PARIS TO OSLO 
+-Reminder: Terje 
+Fri. Nov. 30-OSLO 
+-Reminder: Mette 
+PEOPLE TO SEE IN PARIS 
+Rassek 
+Rivkin 
+Lang 
+Lin Pin 
+Daniel Siad's Herme's people: Francois Manalt (Project Manager), Francois Dore 
+(General Manager), Pierre Francois Le Poutre (Marketing & Sales Manager) 
+Francois Manalt 
+EFTA_R1_00820823 
+EFTA02154708
+
+[PDF](test/pdf/EFTA02154707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)
+
+---
+
+### 2012-10-21 23:27:04Z
 
 **From:** Jeffrey Epstein <jeevacation®gmail.com>
 
@@ -101,7 +164,7 @@ Im planning on nonvay the 15-19 .
 
 ---
 
-### 2011-10-24T06:27:00+00:00
+### 2011-10-24 04:27:00Z
 
 **From:** jeffrey epstein <jeevacation@gmail.com>
 
