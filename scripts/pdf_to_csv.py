@@ -24,8 +24,6 @@ def clean_text(text):
     text = text.replace("=8E", "")
     text = re.sub(r"\s+", " ", text)
     text = re.sub(r"\r\n", "\n", text)
-    text = text.replace(">", "")
-    text = text.replace("<", "")
     return text.strip()
 
 
@@ -82,26 +80,42 @@ def parse_first_email(text):
 
         # Capture From
         if line.lower().startswith("from:") and not headers["From"]:
-            headers["From"] = clean_text(line[5:].strip().strip('"'))
+            headers["From"] = (
+                clean_text(line[5:].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            )
             continue
 
         # Capture To
         if line.lower().startswith("to:") and not headers["To"]:
-            headers["To"] = clean_text(line[3:].strip().strip('"'))
+            headers["To"] = (
+                clean_text(line[3:].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            )
             continue
 
         # Capture Sent / Date
         if (
             line.lower().startswith("sent:") or line.lower().startswith("date:")
         ) and not headers["Sent"]:
-            raw_date = clean_text(line.split(":", 1)[1].strip().strip('"'))
+            raw_date = (
+                clean_text(line.split(":", 1)[1].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            )
             utc_date = normalize_date(raw_date)
             headers["Sent"] = utc_date or raw_date
             continue
 
         # Capture Subject
         if line.lower().startswith("subject:") and not headers["Subject"]:
-            headers["Subject"] = clean_text(line.split(":", 1)[1].strip().strip('"'))
+            headers["Subject"] = (
+                clean_text(line.split(":", 1)[1].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            )
             continue
 
         # If the princess has sent the mail and  we reach the norwegian line that is added for replies of the mail, we break:
@@ -122,7 +136,7 @@ def parse_first_email(text):
 
         # If all header fields are found, the rest is content baby
         if headers["From"] and headers["To"] and headers["Sent"]:
-            headers["Content"] += " \n" + clean_text(line)
+            headers["Content"] += "\n\n" + clean_text(line)
             continue
 
     # Return None if From or To or Sent is missing
