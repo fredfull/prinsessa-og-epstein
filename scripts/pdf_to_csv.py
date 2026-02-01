@@ -24,6 +24,8 @@ def clean_text(text):
     text = text.replace("=8E", "")
     text = re.sub(r"\s+", " ", text)
     text = re.sub(r"\r\n", "\n", text)
+    text = text.replace(">", "")
+    text = text.replace("<", "")
     return text.strip()
 
 
@@ -203,7 +205,7 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
             # For transparancy, add a disclaimer that there are removed pages here:
             if len(pdf.pages) > 2:
                 email["Content"] += (
-                    "\n ** Pages have been removed, see source for all pages **"
+                    "\n\n ** Pages have been removed, see source for all pages **"
                 )
 
         print(f"Successfully parsed {pdf_file} ")

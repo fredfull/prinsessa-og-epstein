@@ -1,6 +1,6 @@
 {
     "pdf": {
-        "successfull": 833,
+        "successfull": 831,
         "total": 1536,
         "failed": [
             "pdfs/kronprinsessen/EFTA01924810.pdf",
@@ -540,6 +540,7 @@
             "pdfs/mette/EFTA02151538.pdf",
             "pdfs/mette/EFTA00872651.pdf",
             "pdfs/mette/EFTA00872613.pdf",
+            "pdfs/mette/EFTA02368863.pdf",
             "pdfs/mette/EFTA02393498.pdf",
             "pdfs/mette/EFTA01870153.pdf",
             "pdfs/mette/EFTA00150210-1.pdf",
@@ -572,6 +573,7 @@
             "pdfs/mette/EFTA02021990.pdf",
             "pdfs/mette/EFTA02136079.pdf",
             "pdfs/mette/EFTA01618992.pdf",
+            "pdfs/mette/EFTA02704779.pdf",
             "pdfs/mette/EFTA01910629.pdf",
             "pdfs/mette/EFTA01955665.pdf",
             "pdfs/mette/EFTA01881502.pdf",
