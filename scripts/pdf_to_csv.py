@@ -140,7 +140,7 @@ def parse_first_email(text):
             continue
 
     # Return None if From or To or Sent is missing
-    if not headers["From"] or not headers["To"] or not headers["Sent"]:
+    if not headers["Sent"]:
         return None
     return headers
 
