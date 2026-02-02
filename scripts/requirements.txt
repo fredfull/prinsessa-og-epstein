@@ -1,1 +1,2 @@
 pdfplumber
+bs4
