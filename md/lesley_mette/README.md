@@ -1,0 +1,294 @@
+# Email Correspondence
+
+### 2013-06-26 14:19:47+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+ok perfect! thank you for letting me know
+
+[PDF](../pdf/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+
+---
+
+### 2013-06-26 14:19:47+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+ok perfect! thank you for letting me know
+
+[PDF](../pdf/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+
+---
+
+### 2013-06-26 13:47:15+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Thx. I will try. I'm emailing directly with Jeffrey.
+
+Mm
+
+➢en 26. juni 2013 kl. 15:45 skrev Lesley Groff
+
+> Hello Princess Mette....just following up to see if you might be available to come see
+
+Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
+
+> 9 East 71st Street between 5th and Madison
+
+•> Thank you! Lesley
+
+> Assistant to Jeffrey Epstein
+
+EFTA00388387
+
+[PDF](../pdf/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+
+---
+
+### 2013-06-26 13:47:15+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Thx. I will try. I'm emailing directly with Jeffrey.
+
+Mm
+
+➢en 26. juni 2013 kl. 15:45 skrev Lesley Groff
+
+> Hello Princess Mette....just following up to see if you might be available to come see
+
+Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
+
+> 9 East 71st Street between 5th and Madison
+
+•> Thank you! Lesley
+
+> Assistant to Jeffrey Epstein
+
+EFTA00388387
+
+[PDF](../pdf/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+
+---
+
+### 2013-06-22 11:50:39+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Ok, thank you!
+
+[PDF](../pdf/kpm/EFTA00388691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388691.pdf)
+
+---
+
+### 2013-06-21 14:25:26+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Sorry to bother...but might 1pm on Monday June 24th be good for you to meet with Jeffrey at
+
+his home, 9 East 71st Street between 5th and Madison...I know he would love to see you...
+
+Please let me know! thank you, Lesley
+
+[PDF](../pdf/kpm/EFTA00388663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388663.pdf)
+
+---
+
+### 2013-06-21 12:25:26+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Sorry to bother...but mi.ht 1.m on Monda June 24th be 'mood for you to meet with
+
+Jeffrey at his home, know he would
+
+love to see you...
+
+Please let me know! thank you, Lesley
+
+[PDF](../pdf/kpm/EFTA02135400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135400.pdf)
+
+---
+
+### 2013-06-20 18:40:16+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Would 1pm on Monday work for you!!??
+
+[PDF](../pdf/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
+
+---
+
+### 2013-06-20 17:22:21+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Could you come earlier? What would suit you? ... as I know Jeffrey would like to see you!
+
+[PDF](../pdf/kpm/EFTA00388857.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388857.pdf)
+
+---
+
+### 2013-01-03 16:05:19+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Excellent!!
+
+(and you are so very welcome)
+
+[PDF](../pdf/kronprinsessen/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+
+---
+
+### 2013-01-03 16:05:19+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Jeffrey Epstein
+
+Excellent!!
+
+(and you are so very welcome)
+
+[PDF](../pdf/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+
+---
+
+### 2013-01-03 16:04:02+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Thank you so much for your kind help!!
+
+Sun & sand from here
+
+[PDF](../pdf/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+
+---
+
+### 2013-01-03 16:04:02+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Thank you so much for your kind help!!
+
+Sun & sand from here
+
+[PDF](../pdf/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+
+---
+
+### 2013-01-03 15:41:40+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Yes my flight arrives at seven pm on sunday the 6th From st Maarten. I think American
+
+airlines . I'll be meeting my security at the airport. He will be staying at a hotel in palm
+
+beach.
+
+My cell number is
+
+I11 call the driver when I land at the airport.
+
+Myoshin Kelley my teacher is arriving from somewhere in Florida where she is in retreat at
+
+the moment I'll copy her email in above. She will be able to give you info on her arrival.
+
+Hope this gives some clarity., sorry this has taken some time. Holiday life ....
+
+Warm regards Mette
+
+[PDF](../pdf/kronprinsessen/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+
+---
+
+### 2013-01-03 15:41:40+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff
+
+**Subject**: Re: Jeffrey Epstein
+
+Yes my flight arrives at seven pm on sunday the 6th From st Maarten. I think American
+
+airlines . I'll be meeting my security at the airport. He will be staying at a hotel in palm
+
+beach.
+
+My cell number is
+
+I11 call the driver when I land at the airport.
+
+Myoshin Kelley my teacher is arriving from somewhere in Florida where she is in retreat at
+
+the moment I'll copy her email in above. She will be able to give you info on her arrival.
+
+Hope this gives some clarity., sorry this has taken some time. Holiday life ....
+
+Warm regards Mette
+
+[PDF](../pdf/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+
+---
+

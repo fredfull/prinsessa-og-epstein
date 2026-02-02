@@ -1,0 +1,2586 @@
+# Email Correspondence
+
+### 2014-09-23 11:25:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Jes Staley
+
+Jes =taley will come see you at 6pm...he is aware of Barbro and the =BB's...l let him know if he would like privacy, you
+
+can step out for 10 =inutes.
+
+10:30am Appt =/Dr.
+
+JOJO TO DRIVE =OU
+
+12:00pm Lunch W/Ehud =
+
+1:00pm Kathy Ruemmler to join you and Ehud (Kathy
+
+1:00pm Appt w/Michael Wolff
+
+2:00pm =/i>Appt w/lisa New ( )
+
+3:00pm =abor ?
+
+3:30}Dit'EO-Oc5a,t420E [58-$k Pce0-11—Y.CT±"P-I e@ag,:iMvuwv0C(@
+
+1
+
+EFTA_R1_01355624
+
+EFTA02362651
+
+rAIGMYot: 'hA A$CES1:234 I Ayw71>t) N00-007 dv52xRe7A+136T@i5E,Ivrof^ers-I A P-
+
+a$qcN tanzt§eStri i6Aw ED-Salk« HA-1El =OTOCI tig§c.
+
+2
+
+EFTA_R1_01 355625
+
+EFTA02362652
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/kpm/EFTA02362651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02362651.pdf)
+
+---
+
+### 2014-06-10 18:14:06+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Eva
+
+Eva called to let you know she was walking in CP and ran in to Boris and Mette.
+
+Boris
+
+Mette
+
+[PDF](../pdf/mette/EFTA01919862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919862.pdf)
+
+---
+
+### 2014-06-10 18:14:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Eva
+
+Eva called to let you know she was walking in CP and ran in to Boris and Met=e.
+
+Boris
+
+Mette
+
+[PDF](../pdf/mette/EFTA02584240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584240.pdf)
+
+---
+
+### 2014-06-10 11:35:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+11am
+
+1:00 TENTATIVE Austin Hall (do you want him to come?)
+
+??? Mette?(she does not answer me)
+
+3:00 wheels up to island
+
+[PDF](../pdf/mette/EFTA00990666.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990666.pdf)
+
+---
+
+### 2014-06-10 09:57:05+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+austin at I ok
+
+[PDF](../pdf/mette/EFTA01919479.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919479.pdf)
+
+---
+
+### 2014-06-10 09:36:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+11am and
+
+1:00 TENTATIVE Austin Hall (do you want him to come?)
+
+??? Mette?(she does not answer me)
+
+3:00 wheels up to island
+
+[PDF](../pdf/mette/EFTA02584830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584830.pdf)
+
+---
+
+### 2014-06-10 09:35:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+11am a and
+
+1:00 TENTATIVE Austin Hall (do you want him to come?)
+
+??? Mette?(she does not answer me)
+
+3:00 wheels up to island
+
+[PDF](../pdf/mette/EFTA01919046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919046.pdf)
+
+---
+
+### 2014-06-09 18:49:29+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule tomorrow
+
+11
+
+[PDF](../pdf/mette/EFTA01920785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920785.pdf)
+
+---
+
+### 2014-06-09 18:47:45+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re: Schedule tomorrow
+
+They cannot. The earliest Anna can do is I lam. Sent email earlier re this Do you prefer I lam?
+
+Or keep 12?
+
+[PDF](../pdf/mette/EFTA01920732.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920732.pdf)
+
+---
+
+### 2014-06-09 18:45:20+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule tomorrow
+
+i asked if kathrine and ana can do 9 am?
+
+[PDF](../pdf/mette/EFTA01920684.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920684.pdf)
+
+---
+
+### 2014-06-09 18:43:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule tomorrow
+
+12:00 and IM
+
+1:00 TENTATIVE Appt with Austin Hall (need JE to approve)
+
+?? Mette ???
+
+7pm wheel up to island
+
+[PDF](../pdf/mette/EFTA02584280.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584280.pdf)
+
+---
+
+### 2014-06-09 10:16:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Mon. June 9, 2014 NY
+
+Reminder Mette in
+
+Reminder Call Tommy Mottola
+
+10:00am Appt :Weira
+
+11:00am Appt w/Hardeep and Svet
+
+12:30am TENTATIVE Appt 'or someone (waitingf or reply)
+
+Woody sometime today?
+
+2-3:00pm Appt w/Peter Diamandi.
+
+3:00pm Appt w/Austin Hill
+
+3:30-S:30pm Meeting iv/Eileen Alexanderson et al (Eileen , Rich Kahn and Darren
+
+6:00pm TENTATIVE Appt iv/Ramsey Elkholy
+
+8:00pm DINNER w/Peter Thiel and Ehud Barak (Barak
+
+(Talia is Peter's assistant: Peter will be bringing a guest
+
+EFTA00991102
+
+EFTA00991103
+
+[PDF](../pdf/mette/EFTA00991102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991102.pdf)
+
+---
+
+### 2014-06-09 09:01:44+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re: Schedule
+
+is scheduled for 10am today
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00368287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368287.pdf)
+
+---
+
+### 2014-06-09 08:17:07+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Reminder: Mette in NY
+
+Reminder: Melie in NY ffi
+
+EFTA_R1_00363800
+
+EFTA01920612
+
+[PDF](../pdf/mette/EFTA01920612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920612.pdf)
+
+---
+
+### 2014-06-09 08:17:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Mon. June 9, 2014 =Y
+
+Reminder: Mette =n NY (
+
+Reminder: =all Tommy Mottola p)
+
+10:00am Appt
+
+11:00am Appt w/Hardeep and.
+
+12:30am TENTATIVE Appt e or someone (waiting for reply)
+
+Woody sometime today?
+
+2-3:00pm Appt w/Peter Diamandis (a)
+
+3:00pm Appt w/Austin Hill =
+
+3:30-5:30pm Meeting w/Eileen Alexanderson et al (Eileen I, Rich Kahn and =arren
+
+6:00pm TENTATIVE Appt w/Ramsey Elkholy
+
+8:00pm =INNER w/Peter Thiel and Ehud Barak (Barak
+
+EFTA_R1_01763803
+
+EFTA02584787
+
+(Talia is Peter's assistant: Peter =ill be bringing a guest
+
+=
+
+2
+
+EFTA_R1_01763804
+
+EFTA02584788
+
+[PDF](../pdf/mette/EFTA02584787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584787.pdf)
+
+---
+
+### 2014-06-09 08:16:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Mon. June 9. 2014 NY
+
+Reminder: Metre in N
+
+Reminder: Call Tommy Motiola l
+
+10:00am App
+
+11:00am Appt wifiardeep
+
+an'
+
+12:30am TENTATIVE Appt el r someone (waitingf or reply)
+
+Woody sometime today?
+
+2-3:00pm Appt w/Peter Diamandis
+
+3:00pm Appt w/Austin Hill
+
+3:30-5:30pm Meeting w/Eileen Alexanderson et al (Eileen Rich Kahn and
+
+Darren
+
+6:00pm TENTATIVE Appt w/Ramsey Elkholy
+
+EFTA_R1_00363679
+
+EFTA01920532
+
+8:00pm DINNER w/Peter Thiel and Ehud Barak (Barak
+
+(Talia is Peter's assistant: Peter will be bringing a guest
+
+EFTA_R1_00363680
+
+EFTA01920533
+
+[PDF](../pdf/mette/EFTA01920532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920532.pdf)
+
+---
+
+### 2014-06-09 07:01:44+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re: Schedule
+
+s scheduled for 10am today
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA01920424.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920424.pdf)
+
+---
+
+### 2014-06-08 23:05:31+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+do we have mon apt. , ? otherwise ask or also schedule or another at 12.30 and
+
+ramsey,
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00368282.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368282.pdf)
+
+---
+
+### 2014-06-08 13:26:01+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Sun. June 8, 2014 1.S.1-NY
+
+6:00am Depart LSJ
+
+9:22am Arrive NY
+
+11:00am JE to Call Joe Thakuria
+
+VEGETARIAN LUNCH
+
+II:30-1:00pm LUNCH Appt w/Joi Ito (Reid Hoffman might join)
+
+12:30-2:00pm LUNCH Woody Allen (Soon Yi
+
+1:30-3:00pm Appt w/Hardeep and Tele
+
+3:00pm Appt w/Ehud
+
+3:30pm Appt iv/Steve Kosslyn
+
+4:30pm Kelm Rudd
+
+Mon. June 9, 2014 NY
+
+Reminder: Mette in NY
+
+EFTA00991049
+
+Reminder: Call Tommy Mottola
+
+10:00am Appt
+
+II:00am Appt w/Hardeep and Svet
+
+Woody?
+
+2-3: 00pm Appt w/Peter Diamandis
+
+3:00pm Appt w/Austin Hall
+
+3:30-5:30pm Meeting iv/Eileen Alexanderson et al (Eileen , Rich Kahn and Darren
+
+6:00pm TENTATIVE Appt iv/Ramsey Elkholy
+
+8:00pm DINNER w/Peter Thiel and Ehud Barak (Barsl
+
+(Talia is Peter's assistant: Peter will be bringing a guest
+
+Tues. June 10, 2014 NY-LSJ
+
+Reminder: Amfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The
+
+Plaza, 768 Fifth Ave.
+
+Mette?
+
+7:00pm Depart NY
+
+10:30pm Arrive LSJ
+
+EFTA00991050
+
+[PDF](../pdf/mette/EFTA00991049.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991049.pdf)
+
+---
+
+### 2014-06-08 11:26:01+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Sun. June 8. 2014 LSJ-NY
+
+6:00am Depart I.S.!
+
+9:22am Arrive NY
+
+11:00am JE to Call Joe Thakuria ( )
+
+VEGETARIAN LUNCH
+
+11:30-1:00pm LUNCH Appt wiloi Ito (Reid Hoffman might join)
+
+12:30-2:00pm LUNCH Woody Allen (Soon
+
+1:30-3:00pm Appt w/Hardeep and Terje
+
+3:00pm App: w/Ehud
+
+3:30pm Appt w/Steve Kosslyn
+
+4:30pm Kevin Rudd
+
+Mon. June 9. 2014 NY
+
+EFTA_R1_00376377
+
+EFTA01928244
+
+Reminder: Mette in NY
+
+Reminder: Call Tommy Mottola
+
+10:00am Appt
+
+11:00am Appt w/Hardeep and.
+
+Woody?
+
+2-3:00pm Appi w/Peter Diamandis
+
+3:00pm Appt w/Austin Hall
+
+3:30-S:30pm Meeting w/Eileen Alexanderson et al (Eileen Rich Kahn and
+
+Darren
+
+6:00pm TENTATIVE Appt iv/Ramsey Elkholy
+
+8:00pm DINNER w/Peter Thiel and Ehud Barak (Barak
+
+(Talia is Peter's assistant:nter will be bringing a guest
+
+Tues. June 10. 2014 NY-1,S.1
+
+Reminder: Amfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm
+
+dinner. The Plaza, 768 Fifth Ave.
+
+Mette?
+
+EFTA_R1_00376378
+
+EFTA01928245
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA01928244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01928244.pdf)
+
+---
+
+### 2014-06-08 11:26:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Sun. June 8, 2014 =SJ-NY
+
+6:00am Depart =SJ
+
+9:22am =rrive NY
+
+11:00am JE to Call Joe Thakuria
+
+VEGETARIAN LUNCH
+
+11:30-1:00pm LUNCH Appt w/Joi Ito (Reid Hoffman might join)
+
+12:30-2:00pm LUNCH Woody Allen (Soon Yi
+
+1:30-3:00pm Appt w/Hardeep and Terje
+
+3:00pm Appt w/Ehud
+
+3:30pm Appt w/Steve Kosslyn
+
+4:30pm Kevin =udd
+
+Mon. =une 9, 2014 NY
+
+EFTA_R1_01763096
+
+EFTA02584379
+
+Reminder: Mette in NY (-
+
+Reminder: =all Tommy Mottola p)
+
+10:00am Appt
+
+11:00am Appt w/Hardeep and
+
+Woody?
+
+2-3:00pm Appt w/Peter Diamandis ( p)
+
+3:00pm Appt w/Austin Hall
+
+3:30-5:30pm Meeting w/Eileen Alexanderson et al (Eileen Rich Kahn and =arren
+
+6:00pm TENTATIVE Appt w/Ramsey Elkholy
+
+8:00pm =INNER w/Peter Thiel and Ehud Barak (Barak
+
+(Talia is Peter's assistant: Peter =ill be bringing a guest
+
+Tues. June 10, 2014 =Y-LSJ
+
+Reminder: =mfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The Plaza, 768
+
+Fifth Ave.
+
+Mette?
+
+2
+
+EFTA_R1_01763097
+
+EFTA02584380
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA02584379.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584379.pdf)
+
+---
+
+### 2014-06-06 18:47:09+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Peter Diamandis
+
+Peter Diamandis will come see you on Monday June 9th from 2-3pm
+
+Mon. June 9, 2014 NY
+
+Reminder: John Christensen to arrive STT 3:53pm via Delta925 (Rec. Loc#AYPBWZ)
+
+Reminder Mette in NY ( 1
+
+11:00am Appt w/Hardeep
+
+Woody?
+
+2-3:00pm Appt w/Peter Diamandis
+
+3:00pm Appt w/Austin Hal! ( )
+
+3:30-S:30pm Meeting iv/Eileen Aleranderson et al, Rich Kahn, Darren
+
+6:00pm TENTATIVE Appt w/Ramsey Elkholv ( )
+
+7:30pm DINNER w/Peter Thiel and Ehud Barak
+
+EFTA00641036
+
+[PDF](../pdf/mette/EFTA00641036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00641036.pdf)
+
+---
+
+### 2014-06-06 16:47:09+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Peter Diamandis
+
+Peter Diamandis will come see you on Monday June 9th from 2-3pm
+
+Mon. June 9, 2014 NY
+
+Reminder: John Christensen to arrive SIT 3:53pm via Delta925 (Rec. Loc#AYPBWZ)
+
+Reminder: Metre in NY
+
+11:00am Appt w/Hardeep
+
+Woody?
+
+2-3:00pm Appt w/Peter Diamandis
+
+Ma )
+
+3:00pm Appt w/Austin Hall
+
+3:30-5:30pm Meeting w/Eileen Alexanderson et al, Rich Kahn, Darren
+
+6:00pm TENTATIVE Appt iv/Ramsey Elkholy
+
+7:30pm DINNER w/Peter Thiel and Ehud Barak
+
+EFTA_R1_00367516
+
+EFTA01923244
+
+[PDF](../pdf/mette/EFTA01923244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01923244.pdf)
+
+---
+
+### 2014-06-06 11:50:42+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen
+
+Date: Friday, June 6, 2014
+
+Subject:
+
+To: "jeffrey E." Think tuesday will work
+
+[PDF](../pdf/kronprinsessen/EFTA00368174.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368174.pdf)
+
+---
+
+### 2014-06-06 09:51:40+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule at the moment
+
+Yes 330
+
+[PDF](../pdf/mette/EFTA01921538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921538.pdf)
+
+---
+
+### 2014-06-06 09:50:42+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen
+
+Date: Friday, June 6, 2014
+
+Subject:
+
+To: Jeffrey E." Think tuesday will work
+
+[PDF](../pdf/kronprinsessen/EFTA01921495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921495.pdf)
+
+---
+
+### 2014-06-06 09:22:42+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule at the moment
+
+Do we schedule in the All Hands On Meeting w/Eileen, etc for Monday June 9th now?
+
+Sun. June 8. 2014 1..SJ-NY
+
+6:00am Depart LS!
+
+773D Arrive NY
+
+Woody? Hardeep? Mote?
+
+10:00am JE to Call Joe Thakuria
+
+Mon. June 9.2014 NY
+
+Reminder: John Christensen to arrive SIT 3:53pm via Delta925 (Rec. LocilAYPBWZ)
+
+Reminder: Metre in NY
+
+MD All Hands ON Eileen Alexanderson a a! meeting (??? Today)
+
+11:00am Appt w/Hardeep and Svetlana
+
+Woody? Mette?
+
+3:00pm Appt w/Austin Hall
+
+6:00pm TENTATIVE Appt w/Ramsey Elkhool
+
+EFTA_R1_00044985
+
+EFTA01748805
+
+7:30pm DINNER w/Peter Thiel and Ehud Barak
+
+Tues. June 10. 2014 NY
+
+11:00am Appt w/Prof Kosslyn
+
+7:00pm Depart NY
+
+TIID Arrive LSJ
+
+EFTA R1_00044986
+
+EFTA01748806
+
+[PDF](../pdf/mette/EFTA01748805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01748805.pdf)
+
+---
+
+### 2013-09-25 02:10:14+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message --
+
+From: H.K.H. Kronprinsessen
+
+Date: Tue, Sep 24, 2013 at 9:34 PM
+
+Subject: Re:
+
+To: Jeffrey Epstein Def 9
+
+[PDF](../pdf/kronprinsessen/EFTA00382715.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382715.pdf)
+
+---
+
+### 2013-09-22 18:11:41+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Do we have a time for Mette tomorrow? Shall I follow up with Her?
+
+yes
+
+[PDF](../pdf/mette/EFTA01954418.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954418.pdf)
+
+---
+
+### 2013-09-22 18:07:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Do we have a time for Mette tomorrow? Shall I follow up with Her?
+
+Do we have a time for Mette tomorrow? She thought most likely she could =ee you Monday...do you want me to foliow
+
+up with her?=?xml version=.0" encoding=TF-8"?> conversation-id 267746 date-last-viewed 0 date-received 1379880394 flags 8623750149 gmail-label-ids 6 2 remote-id 344886 1
+
+EFTA_R1_01745583
+
+EFTA02574610
+
+[PDF](../pdf/mette/EFTA02574610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574610.pdf)
+
+---
+
+### 2013-09-20 20:53:24+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+TONIGHT:
+
+7:30 BILL & Melinda GATES to arrive the house
+
+8:00pm DINNER and other guests to arrive: Dinner will be Bill, Melinda, Terje, Jagbland, JE.
+
+Larry & Lisa Summers are invited —waitingf or reply. Eva & will stop by around 9:30but
+
+not be seatedf or dinner.
+
+Saturday Sept 21, 2013 NY
+
+Reminder: Call
+
+Reminder: Princess Mette to arrive today and stay until Thurs, Sept 26
+
+Reminder: Michael Wolff()
+
+Reminder: J. Dennis Paulin to go for a site visit of the island today (land at 10:30 depart island
+
+at 3pm) .1:s cell.
+
+TBD Morning w/Ehud (Will this be a breakfast?)
+
+71st
+
+1:45pm Jed Garfield at to show the house. His client will arrive at 2pm (Jed:
+
+to meet with Jed
+
+2:30pm Appt
+
+EFTA00971532
+
+3:00pm Appt w/Prof. Kosslyn
+
+3:45pm Prof Kosslyn wife, Robin will arrive
+
+4:00pm Appt (LATE LUNCH) w/Olivier Colom
+
+6:00pm Thorbjoern Jagbland
+
+TBD Dinner w/Ehud Barak? Rothschild? (NOT SURE THIS IS HAPPENING NOW SINCE
+
+EHUD IS COMING IN THE MORNING...NEED TO HEAR BACK FROM Ja
+
+Sunday Sept 22, 2013 NY
+
+Reminder: Josh Cotnpo, Rothschild, Olivier Colom
+
+Reminder: Tim Zagat (maybe Tim, you and Joel Klein could have some food) Tim:
+
+6:00pm BBB Gathering w/Female Economist of the Year and Barbro Ehnbom ( )
+
+Christina Andersson is helping to coordinate
+
+Champagne and Canapes
+
+Monday Sept 23, 2013 NY
+
+Reminder: Joshua Cooper Ramo back in NY today
+
+Reminder: Kissinger is free starting evening of Sept. 23rd
+
+Reminder: Barak is NOT available today btwn 5-6pm today
+
+9:15am BREAKFAST w/Ariane de Rothschild, Olivier Colom & Ehud Barak (Does Nili come to
+
+breakfast too?)
+
+EFTA00971533
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00971532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971532.pdf)
+
+---
+
+### 2013-09-20 10:29:06+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen •
+
+Date: Fri, Sep 20, 2013 at 2:48 AM
+
+Subject: Re:
+
+To: Jeffrey Epstein
+
+Dont know yet. Monday day looks best
+
+[PDF](../pdf/kronprinsessen/EFTA00383231.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383231.pdf)
+
+---
+
+### 2013-09-20 08:29:06+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen
+
+Date: Fri, Sep 20, 2013 at 2:48 AM
+
+Subject: Re:
+
+To: Jeffrey Epstein leevacation@gmail.com>
+
+Dont know yet. Monday day looks best
+
+[PDF](../pdf/kronprinsessen/EFTA01954911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954911.pdf)
+
+---
+
+### 2013-09-18 20:39:21+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Thursday Sept 19, 2013 LSJ-NY
+
+Reminder: Tim Zagat aM)
+
+Reminder: Terje to arrive IVY today
+
+Reminder: jabot; zagaa Joel, mort.M. josh, oiliver, branson. hoffmanjoi.chritakis
+
+woody , koons
+
+Reminder: Harry Beller out for Jewish Holiday Thurs. Sept 19th and Fri. Sept 20th
+
+Reminder: .loi Ito (MM)
+
+4:15am Helif rom LSJ to SIT
+
+5:00am Wheels up from STT to Islip
+
+9:00am Arrive Islip, to meet you here (=: )
+
+Hawthorne Aviation
+
+TBD Depart Islip for Teterboro, Atlantic Aviation
+
+10:15am Arrive Teterboro
+
+EFTA00639219
+
+Atlantic Aviation TEB
+
+1:30pm
+
+2:00pm Appt w/Rich and Darren
+
+5:00pm Appt w/Felicia Taylor (
+
+7:45pm Casual Dinner w/Terje and Ehud (so you want to invite Joel Klein!?) Will Nili be
+
+joining?
+
+(Barak: )(Terle:
+
+9:30pm After Partyf or the Screening of " Muscle Shoals", Confirmed: JE plus 1
+
+The General Jazz Room
+
+Friday Sept 20, 2013 NY
+
+Reminder: Mary Erdoes (
+
+Reminder: Call Frederic Fekkai today (1
+
+Reminder: Call Nina Keita
+
+Reminder: Mette
+
+TBD LUNCH w/Ehud Barak & Joel Klein (Barak: )(Joel:
+
+office,
+
+EFTA00639220
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00639219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639219.pdf)
+
+---
+
+### 2013-09-18 13:10:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Mette?
+
+Shall I follow up with Mette re is she free Sat Sept 21 or Sun Sept 22? conversation-id 267420 date-last-viewed 0 date-received 1379516989 flags 8590195717 gmail-label-ids 6 2 remote-id 343382 1
+
+EFTA_R1_01745429
+
+EFTA02574522
+
+[PDF](../pdf/mette/EFTA02574522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574522.pdf)
+
+---
+
+### 2013-09-13 09:58:19+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen <
+
+Date: Fri, Sep 13, 2013 at 7:37 AM
+
+Subject: Re:
+
+To: Jeffrey Epstein lecvacation@gmail.com>
+
+I arrive 21 and stay to following thursday
+
+[PDF](../pdf/kronprinsessen/EFTA01954737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954737.pdf)
+
+---
+
+### 2013-06-27 15:45:23+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: FYI-Princess Mette/Eva-Shopping at Prada
+
+FYI-I emailed Princess Mette asking if she could meet you for shopping at Prada and suggested 5:30 or 6pm...
+
+(Prada on Madison and 70th is open until 7pm) Eva has a meeting at 2pm but is relatively free the rest of the
+
+day...her assistant has penciled in shopping at Prada around 5:30 or so...
+
+The Princess is not real fast on getting back to me and yesterday she emailed me that she was dealing with you
+
+directly...
+
+EFTA00964361
+
+[PDF](../pdf/mette/EFTA00964361.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964361.pdf)
+
+---
+
+### 2013-06-27 15:12:15+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Do you want Rich Kahn to Stay?
+
+Do you want Rich Kahn to stay?
+
+1:15pm Interview wI
+
+3:00pm Appt w/ Joel Klein ( 1)
+
+4:00pm Appt
+
+5:00pm Appt w/Todd Meister ( 1)
+
+5:30pm CALL Patrick Fenn ( )
+
+5:30/6:00 m TENTATIVE Shopping Trip to Prada w/Princess Mette and Eva
+
+(Eva:
+
+841 Madison Ave (at 70th) open until 7pm
+
+EFTA_R1_00444675
+
+EFTA01966459
+
+[PDF](../pdf/mette/EFTA01966459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966459.pdf)
+
+---
+
+### 2013-06-26 22:57:03+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+Yes
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00963345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963345.pdf)
+
+---
+
+### 2013-06-26 22:57:03+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+Yes
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388545.pdf)
+
+---
+
+### 2013-06-26 22:29:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re: Schedule
+
+I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow?
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388540.pdf)
+
+---
+
+### 2013-06-26 22:29:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re: Schedule
+
+I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow?
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00646131.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646131.pdf)
+
+---
+
+### 2013-06-26 22:20:01+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+what happend to barbros candidate
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00963340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963340.pdf)
+
+---
+
+### 2013-06-26 22:20:01+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+what happend to barbros candidate
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388536-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536-1.pdf)
+
+---
+
+### 2013-06-26 22:20:01+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Schedule
+
+what happend to barbros candidate
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536.pdf)
+
+---
+
+### 2013-06-26 20:49:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+TONIGHT:
+
+5:00pm Appt w/Reid Weingarten (Assistant, Pamela
+
+7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the Hifi (I4LL indont
+
+TAKE 2 FORMS of ID!
+
+175 Eighth Avenue
+
+9:30pm TENTATIVE Mort Zuckerman to stop by (WAITING FOR REPLY!)
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+TBD TENTATIVE Breakfast w/Mort Zuckerman (WAITING FOR REPLY)
+
+11:00am Appt wa( )
+
+12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell:
+
+EFTA00963335
+
+3:00pm Appt w/ Joel Klein (2a
+
+5:00pm Appt w/Todd Meister ( E)
+
+FRL JUNE 28, 2013 NY-HARVARD-LSJ
+
+TAKE KEYSA ND ELEVATOR CARD TO MARTIN'S OFFICE!
+
+TAKE KEYS AND ELEVATOR CARD TO MARTIN'S OFFICE!
+
+GO TO HARVARD!
+
+Joi Ito:
+
+7:45am Everyone to meet at house ready to go
+
+8:00am Depart 71st for Teterboro Airport
+
+8:45am Wheels up from Teterboro, Atlantic Aviation to Bedford
+
+9:20am Arrive Bedford, Jet Aviation (380 Hanscom Dr., Hanscom Field, Bedford, MA,
+
+EFTA00963336
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00963335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963335.pdf)
+
+---
+
+### 2013-06-26 20:49:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+TONIGHT:
+
+5:00pm Appt w/Reid Weingarten (Assistant, Pamela
+
+7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL (I4LL indont
+
+TAKE 2 FORMS of ID!
+
+175 Eighth Avenue
+
+9:30pm TENTATIVE Mort Zuckerman to stop by (WAITING FOR REPLY!)
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+TBD TENTATIVE Breakfast w/Mort Zuckerman (WAITING FOR REPLY)
+
+11:00am Appt w
+
+12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell:
+
+EFTA00388528
+
+3:00pm Appt w/ Joel Klein ( )
+
+5:00pm Appt w/Todd Meister ( E)
+
+FRL JUNE 28, 2013 NY-HARVARD-LSJ
+
+TAKE KEYSA ND ELEVATOR CARD TO MARTIN'S OFFICE!
+
+TAKE KEYS AND ELEVATOR CARD TO MARTIN'S OFFICE!
+
+GO TO HARVARD!
+
+Joi Ito:
+
+7:45am Everyone to meet at house ready to go
+
+8:00am Depart 71st for Teterboro Airport
+
+8:45am Wheels up from Teterboro, Atlantic Aviation to Bedford
+
+9:20am Arrive Bedford, Jet Aviation (380 Hanscom Dr., Hanscom Field, Bedford, MA,
+
+EFTA00388529
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388528.pdf)
+
+---
+
+### 2013-06-26 20:32:41+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: 
+
+is very excited to tell you about what is happening with her...she is now asking if you
+
+could possibly see her tonight? (if not tonight, she will come at 11 am tomorrow)
+
+Please let me know if you want her to come tonight or at Ilam tomorrow.
+
+5:00pm Appt w/Reid Weingarten (Assistant, Pamela:
+
+7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the HILL CALL Ifindow.
+
+TAKE 2 FORMS of ID!
+
+175 Eighth Avenue
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+11:00am TENTATIVE Appt wi
+
+12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell:
+
+3:00pm Appt w/ Joel Klein ( )
+
+5:00pm Appt w/Todd Meister ( )
+
+EFTA00388524
+
+[PDF](../pdf/mette/EFTA00388524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388524.pdf)
+
+---
+
+### 2013-06-26 17:54:11+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: tomorrow?
+
+ok
+
+[PDF](../pdf/mette/EFTA00388488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388488.pdf)
+
+---
+
+### 2013-06-26 17:53:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: tomorrow?
+
+yes
+
+[PDF](../pdf/mette/EFTA00388486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388486.pdf)
+
+---
+
+### 2013-06-26 15:52:20+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: tomorrow?
+
+is sorry she missed my text...she was on the subway...she is asking if she could
+
+possibly come see you tomorrow
+
+THURS. JUNE 27. 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+12:30 m A t w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan
+
+cell:
+
+3:00pm Appt w/ Joel Klein
+
+5:00pm App! w/Todd Meister
+
+EFTA_R 1_00452457
+
+EFTA01970444
+
+[PDF](../pdf/mette/EFTA01970444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970444.pdf)
+
+---
+
+### 2013-06-25 21:00:12+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Tonight:
+
+6:30pm Patrick to come cut hair (Jena to Pay for cut!)
+
+7:00pm Appt w/Julian Leese
+
+WED. JUNE 26, 2013 NY
+
+4:00pm Appt w/David Mitchell
+
+5:00pm Appt w/Reid Weingarten (Assistant, Pamela.
+
+7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL CALL Window.
+
+TAKE 2 FORMS of ID!
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+EFTA00963740
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+3:00pm Appt w/ Joel Klein
+
+5:00pm Appt w/Todd Meister
+
+FRI. JUNE 28, 2013 NY-HARVARD-LSJ
+
+GO TO HARVARD!
+
+TBD Flyf rom NY to Cambridge
+
+Joi Ito willf ly with Jeffrey ■
+
+Martin Nowak's Institute
+
+TBD Appt w/Ed Boyden
+
+TBD TENTATIVE Appt w/Neil Gershenfeld (Assistant is: Theresa Tomic
+
+EFTA00963741
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00963740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963740.pdf)
+
+---
+
+### 2013-06-25 16:03:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Dan Rosenberg
+
+Dan Rosenberg just called to follow up regarding a meeting with you and the 2 people you thought
+
+interesting...He is asking if we could give him a few days/times and he will try to coordinate.
+
+Do you wish me to try and organize a meeting with Dan and the 2 people?
+
+1:00pm Appt with
+
+1:30am Appt wi
+
+2:00pm Appt friend,
+
+3:00pm Appt w/Rich and Darren
+
+4:00pm Appt w/Barbro Ehnbom
+
+5:15pm Appt w/Paul Morris
+
+6:30pm Appt w/Julian Leese a
+
+WED. JUNE 26, 2013 NY
+
+TBD Hopefully meet w/Reid Weingarten
+
+4:00pm Appt w/David Mitchell
+
+EFTA00388630
+
+7:00pm (ish) Haircut w/Patrick at the house
+
+7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL CALL Window.
+
+TAKE 2 FORMS of ID!
+
+175 Eighth Avenue
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+3:00pm Appt w/ Joel Klein ( )
+
+5:00pm Appt w/Todd Meister ( )
+
+EFTA00388631
+
+[PDF](../pdf/mette/EFTA00388630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388630.pdf)
+
+---
+
+### 2013-06-24 20:53:14+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Tonight:
+
+5:30pm Appt wiles Staley (212-905-3948)
+
+7:00pm Dinner w/Pablos Holman & David Blaine
+
+will stop by toward end of dinner
+
+TBD Ito?a) Joi will text your cell later!
+
+TUES JUNE 25, 2013 NY
+
+Reminder: Jerry Barton to stay in apt 8A June 25-27
+
+Reminder: Call Tommy Mottolci
+
+Reminder: David Schulohof
+
+Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today!
+
+Reminder: Steam Service to return today at 8am
+
+TBD Meet w/Julian Leese today or tomorrow,
+
+8:30am Breakfast w/Leon Black
+
+10:30am Appt w/ friend,
+
+EFTA00963628
+
+11:30am Appt
+
+1:00pm Appt with
+
+2:00pm Appt w/Rich and Darren
+
+4:00pm Appt w/Barbro Ehnbom
+
+5-5:30pm Appt w/Pattl Morris
+
+WED. JUNE 26, 2013 NY
+
+TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday
+
+TBD Hopefully meet w/Reid Weingarten
+
+4:00pm Appt tv/David Mitchell
+
+7:00pm (ish) Haircut w/Patrick at the house
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaking Reply)
+
+EFTA00963629
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00963628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963628.pdf)
+
+---
+
+### 2013-06-24 20:53:14+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+Tonight:
+
+5:30pm Appt w/Jes Staley (a)
+
+7:00pm Dinner w/Pablos Holman (a) & a David Blaine
+
+will stop by toward end of dinner(
+
+TBD Jai Ito? a) Joi will text your cell later!
+
+TUES JUNE 25, 2013 NY
+
+Reminder: Jerry Barton to stay in apt 8A June 25-27 (a)
+
+Reminder: Call Tommy Mottola (-o)
+
+Reminder: David Schulohof
+
+Reminder Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today!
+
+Reminder: Steam Service to return today at 8am
+
+TBD Meet w/Julian Leese today or tomorrow a
+
+8:30am Breakfast w/Leon Black (a)
+
+10:30am Appt friend,
+
+EFTA00388577
+
+d
+
+11:30am Appt
+
+1:00pm Appt with
+
+2:00pm Appt w/Rich and Darren
+
+4:00pm Appt w/Barbro Ehnbom
+
+5-5:30pm Appt w/Paul Morris
+
+WED. JUNE 26, 2013 NY
+
+TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday a
+
+TBD Hopefully meet w/Reid Weingarten ( ci
+
+4:00pm Appt tv/David Mitchell (
+
+7:00pm (ish) Haircut w/Patrick at the house
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+EFTA00388578
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388577.pdf)
+
+---
+
+### 2013-06-24 18:13:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Todd Meister
+
+Todd Meister is confirmed to come see you at 5pm on Thursday
+
+TM RS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+3:00pm Appt w/ Joel Klein ( )
+
+5:00pm Appt w/Todd Meister ( )
+
+EFTA00388791
+
+[PDF](../pdf/mette/EFTA00388791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388791.pdf)
+
+---
+
+### 2013-06-24 16:14:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Todd Meister
+
+Todd Meister is confirmed to come see you at 5pm on Thursday
+
+THURS. JUNE 27, 2013 NY
+
+Reminder: Janusz on holiday June 27-30
+
+TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
+
+3:00pm Appt w/ Joel Klein
+
+5:00pm Appt w/Todd Meister
+
+EFTA_R1_01408885
+
+EFTA02387451
+
+[PDF](../pdf/mette/EFTA02387451.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02387451.pdf)
+
+---
+
+### 2013-06-22 12:05:48+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Princess Mette
+
+I think she has TGE wrong Monday , ask her if this thurs works
+
+[PDF](../pdf/kronprinsessen/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
+
+---
+
+### 2013-06-22 12:05:48+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Princess Mette
+
+I think she has TGE wrong Monday , ask her if this thurs works
+
+[PDF](../pdf/mette/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
+
+---
+
+### 2013-06-22 09:51:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Princess Mette
+
+Princess Mette has answered that she is not sure if 1pm on Monday will =ork yet and she will have to get back to
+
+me.=?xml version=.0" encoding=TF-8"?> conversation-id 258959 date-last-viewed O date-received 1371901873 flags 8623750145 gmail-label-ids 6 2 remote-id 315164 1
+
+EFTA_R1_01739265
+
+EFTA02570971
+
+[PDF](../pdf/mette/EFTA02570971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02570971.pdf)
+
+---
+
+### 2013-06-21 20:52:18+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+SAT JUNE 22, 2013 LSJ
+
+3-4:00pm Sultan to arrive 577' via private plane
+
+SUN. JUNE 23, 2013 LSJ
+
+MON. JUNE,14, 2013 LSJ-NY
+
+5th
+
+Reminder: Black Hat Convention July
+
+Reminder: mon leon steve tisch , hanson, todd, , fancelli
+
+Reminder: Call Tommy Mottola (-o)
+
+Reminder: David Schulohof
+
+Reminder: David Blaine ( )
+
+1:00pm TENTATIVE Appt w/The Princess Mate (awaking Reply)
+
+2:00pm Appt waM friend,
+
+3:00pm w/David Schulhof (Awaiting Reply)
+
+4:15pm Appt w/Mort Zuckerman at 71st
+
+EFTA00388681
+
+7:00pm Dinner w/Pablos Holman ( )
+
+TUES JUNE 25, 2013 NY
+
+Reminder: Jerry Barton to stay in apt 8A June 25-27 ( )
+
+Reminder: Call Tommy Mottola an)
+
+Reminder: David Schulohof
+
+Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today!
+
+0
+
+Reminder: Steam Service to return today at 8am
+
+8:30am Breakfast livLeon Black ( )
+
+TBD Meet w/Julian Leese today or tomorrow a
+
+2:00pm Appt w/Rich and Darren
+
+4:00pm Appt w/Barbro Ehnbom ( )
+
+5-5:30pm Appt w/Paul Morris
+
+WED. JUNE 26, 2013 NY
+
+TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday a
+
+EFTA00388682
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00388681.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388681.pdf)
+
+---
+
+### 2013-06-21 20:52:18+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Schedule
+
+SAT JUNE 22, 2013 LSJ
+
+3-4:00pm Sultan to arrive 577' via private plane
+
+SUN. JUNE 23, 2013 LSJ
+
+MON. JUNE,14, 2013 LSJ-NY
+
+Reminder: Black Hat Convention July 5th
+
+Reminder: mon leon steve tisch , hanson, todd, jes, fancelli
+
+Reminder: Call Tommy Mottola (-o)
+
+Reminder: David Schulohof
+
+Reminder: David Blaine ( )
+
+1:00pm TENTATIVE Appt w/The Princess Mate (awaking Reply)
+
+2:00pm Appt friend,
+
+3:00pm w/David Schulhof (Awaiting Reply)
+
+4:15pm Appt w/Mort Zuckerman at 71st
+
+EFTA00691748
+
+7:00pm Dinner w/Pablos Holman ( )
+
+TUES JUNE 25, 2013 NY
+
+Reminder: Jerry Barton to stay in apt June 25-27 ( )
+
+Reminder: Call Tommy Mottola a
+
+Reminder: David Schulohof
+
+Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today!
+
+0
+
+Reminder: Steam Service to return today at 8am
+
+8:30am Breakfast livLeon Black ( )
+
+TBD Meet w/Julian Leese today or tomorrow ( )
+
+2:00pm Appt w/Rich and Darren
+
+4:00pm Appt w/Barbro Ehnbom ( )
+
+5-5:30pm Appt w/Paul Morris
+
+WED. JUNE 26, 2013 NY
+
+TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday
+
+EFTA00691749
+
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../pdf/mette/EFTA00691748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00691748.pdf)
+
+---
+
+### 2013-06-20 18:39:43+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Princess FYI
+
+move princess to 1 and david to 3
+
+[PDF](../pdf/mette/EFTA00388871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388871.pdf)
+
+---
+
+### 2013-06-20 18:38:20+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Princess FYI
+
+I had asked the Princess if she could meet you on Monday June 24th at 3pm and she finally replied back that she
+
+departs for Norway at 4pm so 3pm will unfortunately be too late. I have asked her to please let me know what
+
+time would be good for her as I know you would really like to see her. Still awaiting a reply...
+
+1:00pm Lunch w/David Schulhof (
+
+2:00pm Appt
+
+TBD apps w/Princess Mette (SHE DEPARTS FOR NORWAYA T 4PM, ASKING HER IF
+
+EARLIER WILL WORK)
+
+4:15pm Appt w/Mort Zuckerman at 7P (
+
+5:30pm Appt w/Francisco D 'Agostino (
+
+7:00pm Dinner w/Pablos Holman
+
+EFTA00364954
+
+[PDF](../pdf/mette/EFTA00364954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00364954.pdf)
+
+---
+
+### 2013-06-19 13:09:28+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Monday June 24th so far...
+
+move schulf to 1 , ask jes to come with pablos and ask princess,
+
+H. K.H. Kron rinsessen
+
+2,}1. K.H.
+
+Kronprinsess
+
+en's profile
+
+photo
+
+[PDF](../pdf/kronprinsessen/EFTA00389062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00389062.pdf)
+
+---
+
+### 2013-06-19 13:09:28+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re: Monday June 24th so far...
+
+move schulf to 1 , ask jes to come with pablos and ask princess,
+
+H. K.H. Kron rinsessen
+
+JH. K.H.
+
+Kronprinsess
+
+en's profile
+
+photo
+
+[PDF](../pdf/kronprinsessen/EFTA00963205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963205.pdf)
+
+---
+
+### 2013-01-07 16:26:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Mette/Dentist Andy Adelson?
+
+Did you wish me to pass along the dentist info to Mette and make an appt =or her to see Dr. Andy Adelson for
+
+Dr. Adelson ?xml version=.0" encoding=TF-8"?> conversation-id 241285 date-last-viewed 0 date-received 1357579545 flags 8623750145 gmail-label-ids 6 2 remote-id 268330 1
+
+EFTA_R1_01728351
+
+EFTA02564516
+
+[PDF](../pdf/mette/EFTA02564516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564516.pdf)
+
+---
+
+### 2013-01-07 13:51:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Princess Mette/dentist?
+
+Princess Mette is asking Janusz about setting up an appt tc with your dentist....please advise what
+
+dentist and if you would =ike me to make her an appt.=?xml version=.0" encoding=TF-8"?> conversation-id 241275 date-last-viewed O date-received 1357570240 flags 8590195713 gmail-label-ids 6 2 remote-id 268267 1
+
+EFTA_R1_01727642
+
+EFTA02564020
+
+[PDF](../pdf/mette/EFTA02564020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564020.pdf)
+
+---
+
+### 2013-01-02 15:00:40+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Re:
+
+Yes
+
+[PDF](../pdf/kronprinsessen/EFTA00398532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398532.pdf)
+
+---
+
+### 2013-01-02 14:54:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re:
+
+will coordinate
+
+[PDF](../pdf/kronprinsessen/EFTA00676868.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676868.pdf)
+
+---
+
+### 2013-01-02 14:48:54+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+please coordante „ janush can pick her up.
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen
+
+Date: Wed, Jan 2, 2013 at 10:39 AM
+
+Subject: Re:
+
+To: Jeffrey Epstein Pll call you when I get to area with reception..
+
+As for Miami I arrive Sunday 7 pm flight from st. Marteen.. Let me know if you want me to organize a driver or
+
+yours will pick me up from airport
+
+My meditation teacher Myoshin Kelley will arrive earlier in the day.. And show up at the house if that is ok with
+
+you.
+
+I hope i get to see you here..
+
+Will call in half an hour approx
+
+[PDF](../pdf/kronprinsessen/EFTA00951495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951495.pdf)
+
+---
+
+### 2013-01-02 13:59:16+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re:
+
+Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kronprinsessen is
+
+asking?
+
+[PDF](../pdf/kronprinsessen/EFTA01911595.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911595.pdf)
+
+---
+
+### 2013-01-02 13:49:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: Fwd:
+
+please coordante „ janush can pick her up.
+
+Forwarded message
+
+From: H.K.H. Kronprinsessen <
+
+Date: Wed, Jan 2, 2013 at 10:39 AM
+
+Subject: Re:
+
+To: Jeffrey Epstein &=t;jeevacation@gmail.com Will call in half an hour approx
+
+[PDF](../pdf/kronprinsessen/EFTA02564794.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564794.pdf)
+
+---
+
+### 2012-12-24 22:24:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: 
+
+
+
+[PDF](../pdf/mette/EFTA02564009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564009.pdf)
+
+---
+
+### 2012-12-11 15:23:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Mette
+
+Please call Mette tomorrow on her cell...she says she is not available =or the rest of the day..
+
+(she said you have her number but I requested she please pass it along =o me..she gave me the below:
+
+=?xml version=.0" encoding=TF-8"?> conversation-idgkey> 239708 date-last-viewed 0 date-received 1355243009 flags 8623750145 gmail-label-ids 2 remote-id 263265 1
+
+EFTA_R1_01727132
+
+EFTA02563785
+
+[PDF](../pdf/mette/EFTA02563785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563785.pdf)
+
+---
+
+### 2012-11-26 21:05:31+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Priv & Cone Nov. 26-30
+
+TONIGHT:
+
+4:30pm Depart Chicagof or NY
+
+6:45pm Arrive Teterboro, Atlantic Aviation
+
+Tues. Nov. 27-NY-Paris
+
+11:00am Appt wi
+
+6:10 m to arrive CDG, paris cell
+
+Vaidson to pick up-from airport)
+
+7:10pm JE andieto depart
+
+via.
+
+Wed. Nov. 28-Paris
+
+-Reminder: Yoni & Nili to be in NY for the Saban Forum (Barak as well?)
+
+-Wednesday Night: Jack, Lang
+
+-Reminder Ian and Simon Nurray in Paris Wed.
+
+-Reminder: Doris
+
+8:25am Arrive CDG
+
+Thurs. Nov. 29-PARIS TO OSLO
+
+-Reminder: Terje
+
+Fri. Nov. 30-OSLO
+
+EFTA_R1_02204888
+
+EFTA02721064
+
+-Reminder: Mette
+
+PEOPLE TO SEE IN PARIS
+
+Rassek
+
+Rivkin
+
+Lang
+
+Linda Pinto
+
+Daniel Siad's Herme's people: Francois Manalt (Project Manager), Francois Dore (General
+
+Manager), Pierre Francois Le Poutre (Marketing & Sales Manager)
+
+Francois Manalt
+
+E FTA_R1_02204889
+
+EFTA02721065
+
+[PDF](../pdf/mette/EFTA02721064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721064.pdf)
+
+---
+
+### 2012-11-25 19:25:14+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: 
+
+wed night,i•c tang. . thurs, oslo terje, fri mette, sat stockho, bbb, ? sun paris„
+
+fancelli, hermes,
+
+[PDF](../pdf/mette/EFTA00400841.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400841.pdf)
+
+---
+
+### 2012-09-21 12:54:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Janusz/Ms. Mette Book
+
+Janusz is back from dropping Karyna off at school.. The book is being =rapped and he will then deliver the book to Ms.
+
+Mette at the Chambers =otel, Rm 63=?xml version=.0" encoding=TF-8"?> conversation-idgkey> 231603 date-last-viewed O date-received 1348239217 flags 8590195713 gmail-label-ids 6 2 remote-id 247116 1
+
+EFTA_R1_01722449
+
+EFTA02561117
+
+[PDF](../pdf/mette/EFTA02561117.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561117.pdf)
+
+---
+
+### 2012-05-05 01:03:39+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Reminder
+
+Reminder mette and Boris
+
+[PDF](../pdf/mette/EFTA00413897.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00413897.pdf)
+
+---
+
+### 2012-05-05 01:03:39+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Reminder
+
+Reminder mette and Boris
+
+[PDF](../pdf/mette/EFTA00671852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671852.pdf)
+
+---
+
+### 2012-05-04 23:04:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Reminder
+
+Reminder mette and Boris
+
+[PDF](../pdf/mette/EFTA02371307.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371307.pdf)
+
+---
+
+### 2012-05-04 23:04:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Reminder
+
+Reminder mette and Boris
+
+[PDF](../pdf/mette/EFTA02554611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02554611.pdf)
+
+---
+
+### 2012-05-04 22:59:12+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: reminder: mette and boris
+
+reminder: mette and boris
+
+EFTA_R1_00485160
+
+EFTA01991981
+
+[PDF](../pdf/mette/EFTA01991981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991981.pdf)
+
+---
+
+### 2012-05-01 13:26:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re:
+
+I will remind you This Friday night, May 4th about Mette, Boris.
+
+[PDF](../pdf/mette/EFTA00656237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656237.pdf)
+
+---
+
+### 2012-05-01 13:26:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein
+
+**Subject**: Re:
+
+I will remind you This Friday night, May 4th about Mette, Boris.
+
+[PDF](../pdf/mette/EFTA00414407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414407.pdf)
+
+---
+
+### 2012-05-01 13:18:29+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Lesley Groff
+
+**Subject**: 
+
+remind me on friday night re mette, boris
+
+[PDF](../pdf/mette/EFTA00414395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414395.pdf)
+
+---
+

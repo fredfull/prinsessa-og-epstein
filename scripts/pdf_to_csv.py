@@ -134,7 +134,7 @@ def parse_first_email(text):
             )
         if raw_date:
             utc_date = normalize_date(raw_date)
-            headers["Sent"] = utc_date or raw_date or "N/A"
+            headers["Sent"] = utc_date
             continue
 
         # Capture Subject
@@ -226,7 +226,6 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
         ## I assume that the first mail message exists within the first two pages of the pdf
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages[:2])
         email = parse_first_email(full_text)
-
 
         if not email:
             failed.append(f"{pdf_file}")
