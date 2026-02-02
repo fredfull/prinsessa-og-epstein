@@ -2,8 +2,12 @@
 
 There are two script here.
 
-- `pdf_to_csv.py` takes a folder with pdfs and creates a csv with the first message of each pdf. It is sorted by oldest message first. Expects env variables PDF_DIR (directory of pdf files to use) and CSV_FILE (output csv file path)
+- `pdf_to_csv.py` takes a folder with pdfs and creates a csv with the first message of each pdf. It is sorted by oldest message first. 
 
+Expects env variables 
+- PDF_DIR (directory of pdf files to use)
+- CSV_FILE (output csv file path)
+- STATS_FILE (output stats for successfull and failed pdfs)
 
 Example output:
 ```
@@ -12,7 +16,12 @@ Example output:
 "kronprinsessen/EFTA01754699.pdf","H.K.H. Kronprinsessen","Jeffrey Epstein","2026-11-22T00:00:00+00:00","Re: Thank you"," Yes there are. Where are you?"
 ```
 
-- `csv_to_md.py` creates a markdown file `README.md` from the csv. Expects env variables CSV_FILE (input file) and MD_FILE (output file).
+- `csv_to_md.py` creates a markdown file `README.md` from the csv. 
+
+Expects env variables 
+- CSV_FILE (input file)
+- MD_FILE (output file).
 
 Run from project root:
-`export PDF_DIR="./pdfs/" && export CSV_FILE=messages.csv && export MD_FILE=README.md && export STATS_FILE=stats.json && ./scripts/pdf_to_csv.py && ./scripts/csv_to_md.py`
+
+`export PDF_DIR="./pdf/" && export CSV_FILE=./csv/messages.csv && export MD_FILE=./md/README.md && export STATS_FILE=./stats.json && ./scripts/pdf_to_csv.py && ./scripts/csv_to_md.py`
