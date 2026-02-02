@@ -5,8 +5,12 @@ import matplotlib.pyplot as plt
 import numpy as np
 from datetime import datetime
 import re
+import os
 
-df = pd.read_csv("csv/messages.csv")
+CSV_FILE=os.environ["CSV_FILE"]
+csv_dir = os.path.dirname(CSV_FILE)
+
+df = pd.read_csv(CSV_FILE)
 
 known_people = {
     "boris": "Boris Nikolic",
@@ -167,8 +171,8 @@ bor_jeff = all_correspondence("Boris Nikolic", "Jeffrey Epstein")
 bor_kmp = all_correspondence("Boris Nikolic", "H.K.H. Kronprinsessen")
 lg_kmp = all_correspondence("Lesley Groff", "H.K.H. Kronprinsessen")
 
-kmp_jeff.to_csv("csv/mette_jeff.csv", index=False)
-lg_jeff.to_csv("csv/lesley_jeff.csv", index=False)
-bor_jeff.to_csv("csv/boris_jeff.csv", index=False)
-bor_kmp.to_csv("csv/boris_mette.csv", index=False)
-lg_kmp.to_csv("csv/lesley_mette.csv", index=False)
+kmp_jeff.to_csv(f"{csv_dir}/mette_jeff.csv", index=False)
+lg_jeff.to_csv(f"{csv_dir}/lesley_jeff.csv", index=False)
+bor_jeff.to_csv(f"{csv_dir}/boris_jeff.csv", index=False)
+bor_kmp.to_csv(f"{csv_dir}/boris_mette.csv", index=False)
+lg_kmp.to_csv(f"{csv_dir}/lesley_mette.csv", index=False)

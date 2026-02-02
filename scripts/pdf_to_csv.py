@@ -158,7 +158,7 @@ def parse_first_email(text):
             continue
 
         # If all header fields are found, the rest is content baby
-        if headers["From"] and headers["To"] and headers["Sent"]:
+        if headers["From"] and headers["To"] and headers["Sent"] and headers["Subject"]:
             headers["Content"] += "\n\n" + clean_text(line)
             continue
 
@@ -226,6 +226,7 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
         ## I assume that the first mail message exists within the first two pages of the pdf
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages[:2])
         email = parse_first_email(full_text)
+
 
         if not email:
             failed.append(f"{pdf_file}")

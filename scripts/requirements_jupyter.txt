@@ -1,5 +1,0 @@
-pandas
-matplotlib
-numpy
-wordcloud
-nbstripout
