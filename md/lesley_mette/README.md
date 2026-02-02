@@ -10,7 +10,7 @@
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
 
 ---
 
@@ -24,7 +24,7 @@ ok perfect! thank you for letting me know
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+[PDF](../../pdf/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
 
 ---
 
@@ -54,7 +54,7 @@ Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
 
 EFTA00388387
 
-[PDF](../pdf/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
 
 ---
 
@@ -84,7 +84,7 @@ Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
 
 EFTA00388387
 
-[PDF](../pdf/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+[PDF](../../pdf/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
 
 ---
 
@@ -98,7 +98,7 @@ EFTA00388387
 
 Ok, thank you!
 
-[PDF](../pdf/kpm/EFTA00388691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388691.pdf)
+[PDF](../../pdf/kpm/EFTA00388691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388691.pdf)
 
 ---
 
@@ -116,7 +116,7 @@ his home, 9 East 71st Street between 5th and Madison...I know he would love to s
 
 Please let me know! thank you, Lesley
 
-[PDF](../pdf/kpm/EFTA00388663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388663.pdf)
+[PDF](../../pdf/kpm/EFTA00388663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388663.pdf)
 
 ---
 
@@ -136,7 +136,7 @@ love to see you...
 
 Please let me know! thank you, Lesley
 
-[PDF](../pdf/kpm/EFTA02135400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135400.pdf)
+[PDF](../../pdf/kpm/EFTA02135400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135400.pdf)
 
 ---
 
@@ -150,7 +150,7 @@ Please let me know! thank you, Lesley
 
 Would 1pm on Monday work for you!!??
 
-[PDF](../pdf/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
+[PDF](../../pdf/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
 
 ---
 
@@ -164,7 +164,7 @@ Would 1pm on Monday work for you!!??
 
 Could you come earlier? What would suit you? ... as I know Jeffrey would like to see you!
 
-[PDF](../pdf/kpm/EFTA00388857.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388857.pdf)
+[PDF](../../pdf/kpm/EFTA00388857.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388857.pdf)
 
 ---
 
@@ -180,7 +180,7 @@ Excellent!!
 
 (and you are so very welcome)
 
-[PDF](../pdf/kronprinsessen/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
 
 ---
 
@@ -196,7 +196,7 @@ Excellent!!
 
 (and you are so very welcome)
 
-[PDF](../pdf/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+[PDF](../../pdf/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
 
 ---
 
@@ -212,7 +212,7 @@ Thank you so much for your kind help!!
 
 Sun & sand from here
 
-[PDF](../pdf/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
 
 ---
 
@@ -228,7 +228,7 @@ Thank you so much for your kind help!!
 
 Sun & sand from here
 
-[PDF](../pdf/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+[PDF](../../pdf/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
 
 ---
 
@@ -258,7 +258,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/kronprinsessen/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
 
 ---
 
@@ -288,7 +288,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+[PDF](../../pdf/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
 
 ---
 

@@ -12,7 +12,7 @@ Yes there are.
 
 Where are you?
 
-[PDF](../pdf/kronprinsessen/EFTA01754699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754699.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01754699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754699.pdf)
 
 ---
 
@@ -32,7 +32,7 @@ Enough to still be able to chose the light
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01772124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772124.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772124.pdf)
 
 ---
 
@@ -48,7 +48,7 @@ Continental or grand
 
 Did you download?
 
-[PDF](../pdf/kpm/EFTA01766850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766850.pdf)
+[PDF](../../pdf/kpm/EFTA01766850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766850.pdf)
 
 ---
 
@@ -62,7 +62,7 @@ Did you download?
 
 ok, will pass on to Les,
 
-[PDF](../pdf/mette/EFTA01913674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913674.pdf)
+[PDF](../../pdf/mette/EFTA01913674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913674.pdf)
 
 ---
 
@@ -76,7 +76,7 @@ ok, will pass on to Les,
 
 Boris will stay thurs night pb , are mette people in the house ?
 
-[PDF](../pdf/mette/EFTA01912619.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912619.pdf)
+[PDF](../../pdf/mette/EFTA01912619.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912619.pdf)
 
 ---
 
@@ -90,7 +90,7 @@ Boris will stay thurs night pb , are mette people in the house ?
 
 
 
-[PDF](../pdf/mette/EFTA02018968.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02018968.pdf)
+[PDF](../../pdf/mette/EFTA02018968.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02018968.pdf)
 
 ---
 
@@ -112,7 +112,7 @@ I will now make an effort with shades of grey
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
 
 ---
 
@@ -134,7 +134,7 @@ I will now make an effort with shades of grey
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
+[PDF](../../pdf/kpm/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
 
 ---
 
@@ -148,7 +148,7 @@ I will now make an effort with shades of grey
 
 I I th at 1
 
-[PDF](../pdf/mette/EFTA01913007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913007.pdf)
+[PDF](../../pdf/mette/EFTA01913007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913007.pdf)
 
 ---
 
@@ -176,7 +176,7 @@ jan 2. princess mette 3 Isj st barth 4 ,. Isj- pb 10, pb -ny demo inglisas plane
 
 karyna test, 19 paris.
 
-[PDF](../pdf/mette/EFTA01910629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910629.pdf)
+[PDF](../../pdf/mette/EFTA01910629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910629.pdf)
 
 ---
 
@@ -196,7 +196,7 @@ this...I'm sure Jeffrey wants you there if it is possible! Thanks,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA02153691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153691.pdf)
+[PDF](../../pdf/kpm/EFTA02153691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153691.pdf)
 
 ---
 
@@ -210,7 +210,7 @@ this...I'm sure Jeffrey wants you there if it is possible! Thanks,
 
 no worry, i have plenty to do there
 
-[PDF](../pdf/kronprinsessen/EFTA01913796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913796.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913796.pdf)
 
 ---
 
@@ -224,7 +224,7 @@ no worry, i have plenty to do there
 
 What number can I reach u on??
 
-[PDF](../pdf/kronprinsessen/EFTA02679936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02679936.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02679936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02679936.pdf)
 
 ---
 
@@ -238,7 +238,7 @@ What number can I reach u on??
 
 I will remind you This Friday night, May 4th about Mette, Boris.
 
-[PDF](../pdf/mette/EFTA01881481.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881481.pdf)
+[PDF](../../pdf/mette/EFTA01881481.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881481.pdf)
 
 ---
 
@@ -410,7 +410,7 @@ EFTA01658204
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01658203.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01658203.pdf)
+[PDF](../../pdf/mette/EFTA01658203.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01658203.pdf)
 
 ---
 
@@ -594,7 +594,7 @@ EFTA00150008
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00150007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150007.pdf)
+[PDF](../../pdf/mette/EFTA00150007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150007.pdf)
 
 ---
 
@@ -788,7 +788,7 @@ EFTA00135999
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00135998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00135998.pdf)
+[PDF](../../pdf/mette/EFTA00135998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00135998.pdf)
 
 ---
 
@@ -916,7 +916,7 @@ EFTA00135627
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00135626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00135626.pdf)
+[PDF](../../pdf/mette/EFTA00135626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00135626.pdf)
 
 ---
 
@@ -1104,7 +1104,7 @@ EFTA00150211
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00150210-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150210-1.pdf)
+[PDF](../../pdf/mette/EFTA00150210-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150210-1.pdf)
 
 ---
 
@@ -1292,7 +1292,7 @@ EFTA00150211
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00150210.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150210.pdf)
+[PDF](../../pdf/mette/EFTA00150210.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00150210.pdf)
 
 ---
 
@@ -1316,7 +1316,7 @@ FBI New York
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
+[PDF](../../pdf/mette/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
 
 ---
 
@@ -1340,7 +1340,7 @@ FBI New York
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette-marit/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
+[PDF](../../pdf/mette-marit/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
 
 ---
 
@@ -1372,7 +1372,7 @@ Embassy
 
 Danish cell
 
-[PDF](../pdf/mette/EFTA00147946-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946-1.pdf)
+[PDF](../../pdf/mette/EFTA00147946-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946-1.pdf)
 
 ---
 
@@ -1404,7 +1404,7 @@ Embassy
 
 Danish cell
 
-[PDF](../pdf/mette/EFTA00147946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946.pdf)
+[PDF](../../pdf/mette/EFTA00147946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946.pdf)
 
 ---
 
@@ -1436,7 +1436,7 @@ Embassy
 
 Danish cell
 
-[PDF](../pdf/mette-marit/EFTA00147946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946.pdf)
+[PDF](../../pdf/mette-marit/EFTA00147946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946.pdf)
 
 ---
 
@@ -1486,7 +1486,7 @@ In? If you dont know anything about it, hit up the ALAT to see if their office p
 
 with LE there.
 
-[PDF](../pdf/mette/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
+[PDF](../../pdf/mette/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
 
 ---
 
@@ -1536,7 +1536,7 @@ In? If you dont know anything about it, hit up the ALAT to see if their office p
 
 with LE there.
 
-[PDF](../pdf/mette-marit/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
+[PDF](../../pdf/mette-marit/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
 
 ---
 
@@ -1566,7 +1566,7 @@ In? If you dont know anything about it, hit up the ALAT to see if their office p
 
 with LE there.
 
-[PDF](../pdf/mette/EFTA00147996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147996.pdf)
+[PDF](../../pdf/mette/EFTA00147996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147996.pdf)
 
 ---
 
@@ -1596,7 +1596,7 @@ In? If you dont know anything about it, hit up the ALAT to see if their office p
 
 with LE there.
 
-[PDF](../pdf/mette-marit/EFTA00147996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147996.pdf)
+[PDF](../../pdf/mette-marit/EFTA00147996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147996.pdf)
 
 ---
 
@@ -1618,7 +1618,7 @@ EL If you dont know anything about it, hit up the ALAT to see if their office pu
 
 with LE there.
 
-[PDF](../pdf/mette/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
+[PDF](../../pdf/mette/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
 
 ---
 
@@ -1640,7 +1640,7 @@ EL If you dont know anything about it, hit up the ALAT to see if their office pu
 
 with LE there.
 
-[PDF](../pdf/mette-marit/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
+[PDF](../../pdf/mette-marit/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
 
 ---
 
@@ -1658,7 +1658,7 @@ M? If you dont know anything about it, hit up the ALAT to see if their office pu
 
 with LE there.
 
-[PDF](../pdf/mette/EFTA00148000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148000.pdf)
+[PDF](../../pdf/mette/EFTA00148000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148000.pdf)
 
 ---
 
@@ -1676,7 +1676,7 @@ M? If you dont know anything about it, hit up the ALAT to see if their office pu
 
 with LE there.
 
-[PDF](../pdf/mette-marit/EFTA00148000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148000.pdf)
+[PDF](../../pdf/mette-marit/EFTA00148000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148000.pdf)
 
 ---
 
@@ -1752,7 +1752,7 @@ EFTA00148002
 
 EFTA00148003
 
-[PDF](../pdf/mette/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
+[PDF](../../pdf/mette/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
 
 ---
 
@@ -1828,7 +1828,7 @@ EFTA00148002
 
 EFTA00148003
 
-[PDF](../pdf/mette-marit/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
+[PDF](../../pdf/mette-marit/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
 
 ---
 
@@ -1842,7 +1842,7 @@ EFTA00148003
 
 did you tell her you know mette
 
-[PDF](../pdf/mette/EFTA01027660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01027660.pdf)
+[PDF](../../pdf/mette/EFTA01027660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01027660.pdf)
 
 ---
 
@@ -1856,7 +1856,7 @@ did you tell her you know mette
 
 did you tell her you know mette
 
-[PDF](../pdf/mette/EFTA02627419.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02627419.pdf)
+[PDF](../../pdf/mette/EFTA02627419.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02627419.pdf)
 
 ---
 
@@ -1888,7 +1888,7 @@ Subject: Re:
 
 did nt your eyes come after bill
 
-[PDF](../pdf/mette/EFTA01010430.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01010430.pdf)
+[PDF](../../pdf/mette/EFTA01010430.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01010430.pdf)
 
 ---
 
@@ -1924,7 +1924,7 @@ On Tue, Dec 25, 2018 at 1:29 PM Boris Nikolic
 
 > wrote:
 
-[PDF](../pdf/mette/EFTA02609219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02609219.pdf)
+[PDF](../../pdf/mette/EFTA02609219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02609219.pdf)
 
 ---
 
@@ -1984,7 +1984,7 @@ EFTA02540966
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02540965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02540965.pdf)
+[PDF](../../pdf/mette/EFTA02540965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02540965.pdf)
 
 ---
 
@@ -2032,7 +2032,7 @@ EFTA00645789
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00645788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00645788.pdf)
+[PDF](../../pdf/mette/EFTA00645788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00645788.pdf)
 
 ---
 
@@ -2136,7 +2136,7 @@ EFTA00682165
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00682164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00682164.pdf)
+[PDF](../../pdf/mette/EFTA00682164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00682164.pdf)
 
 ---
 
@@ -2152,7 +2152,7 @@ I agree. And I think writing this letter will worsen their case
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00693171.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693171.pdf)
+[PDF](../../pdf/mette/EFTA00693171.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693171.pdf)
 
 ---
 
@@ -2168,7 +2168,7 @@ Hi Jeff , this article was published saturday in the swiss press- the letter wri
 
 m sure Kathy knows about it
 
-[PDF](../pdf/mette/EFTA00693165.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693165.pdf)
+[PDF](../../pdf/mette/EFTA00693165.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693165.pdf)
 
 ---
 
@@ -2218,7 +2218,7 @@ EFTA02362652
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA02362651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02362651.pdf)
+[PDF](../../pdf/kpm/EFTA02362651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02362651.pdf)
 
 ---
 
@@ -2232,7 +2232,7 @@ EFTA02362652
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01921562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921562.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01921562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921562.pdf)
 
 ---
 
@@ -2246,7 +2246,7 @@ EFTA02362652
 
 ??9
 
-[PDF](../pdf/kronprinsessen/EFTA00991747.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991747.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00991747.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991747.pdf)
 
 ---
 
@@ -2260,7 +2260,7 @@ EFTA02362652
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01918040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918040.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01918040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918040.pdf)
 
 ---
 
@@ -2274,7 +2274,7 @@ EFTA02362652
 
 we didn't finish conversation
 
-[PDF](../pdf/kronprinsessen/EFTA00992209.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00992209.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00992209.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00992209.pdf)
 
 ---
 
@@ -2288,7 +2288,7 @@ we didn't finish conversation
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01917925.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01917925.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01917925.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01917925.pdf)
 
 ---
 
@@ -2302,7 +2302,7 @@ we didn't finish conversation
 
 
 
-[PDF](../pdf/mette/EFTA00991724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991724.pdf)
+[PDF](../../pdf/mette/EFTA00991724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991724.pdf)
 
 ---
 
@@ -2316,7 +2316,7 @@ we didn't finish conversation
 
 
 
-[PDF](../pdf/mette/EFTA02584872.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584872.pdf)
+[PDF](../../pdf/mette/EFTA02584872.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584872.pdf)
 
 ---
 
@@ -2330,7 +2330,7 @@ we didn't finish conversation
 
 
 
-[PDF](../pdf/mette/EFTA01921646.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921646.pdf)
+[PDF](../../pdf/mette/EFTA01921646.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921646.pdf)
 
 ---
 
@@ -2344,7 +2344,7 @@ we didn't finish conversation
 
 i tried same number as yestereday Im a
 
-[PDF](../pdf/kronprinsessen/EFTA00870126.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00870126.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00870126.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00870126.pdf)
 
 ---
 
@@ -2358,7 +2358,7 @@ i tried same number as yestereday Im a
 
 Wherever u r awake
 
-[PDF](../pdf/kronprinsessen/EFTA00695450.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695450.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00695450.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695450.pdf)
 
 ---
 
@@ -2372,7 +2372,7 @@ Wherever u r awake
 
 i tried same number as yestereday Im at
 
-[PDF](../pdf/kronprinsessen/EFTA01919444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919444.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01919444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919444.pdf)
 
 ---
 
@@ -2386,7 +2386,7 @@ i tried same number as yestereday Im at
 
 plate send number
 
-[PDF](../pdf/kronprinsessen/EFTA01919221.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919221.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01919221.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919221.pdf)
 
 ---
 
@@ -2400,7 +2400,7 @@ plate send number
 
 when you have time we can continue the conversation
 
-[PDF](../pdf/kronprinsessen/EFTA00870112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00870112.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00870112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00870112.pdf)
 
 ---
 
@@ -2418,7 +2418,7 @@ On Sunday, June 15, 2014, H.K.H. Kronprinsessen ote:
 
 Tomorrow works for me
 
-[PDF](../pdf/kronprinsessen/EFTA01921617.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921617.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01921617.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921617.pdf)
 
 ---
 
@@ -2432,7 +2432,7 @@ Tomorrow works for me
 
 Call me
 
-[PDF](../pdf/kronprinsessen/EFTA00695458.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695458.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00695458.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695458.pdf)
 
 ---
 
@@ -2446,7 +2446,7 @@ Call me
 
 didn;t get to see you, ?
 
-[PDF](../pdf/kronprinsessen/EFTA00991191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991191.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00991191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991191.pdf)
 
 ---
 
@@ -2460,7 +2460,7 @@ didn;t get to see you, ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01919014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919014.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01919014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919014.pdf)
 
 ---
 
@@ -2474,7 +2474,7 @@ didn;t get to see you, ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01918909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918909.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01918909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918909.pdf)
 
 ---
 
@@ -2492,7 +2492,7 @@ Boris
 
 Mette
 
-[PDF](../pdf/mette/EFTA00706891.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00706891.pdf)
+[PDF](../../pdf/mette/EFTA00706891.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00706891.pdf)
 
 ---
 
@@ -2510,7 +2510,7 @@ Boris
 
 Mette
 
-[PDF](../pdf/mette/EFTA01919862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919862.pdf)
+[PDF](../../pdf/mette/EFTA01919862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919862.pdf)
 
 ---
 
@@ -2530,7 +2530,7 @@ Boris
 
 Mette
 
-[PDF](../pdf/mette/EFTA02396453.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02396453.pdf)
+[PDF](../../pdf/mette/EFTA02396453.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02396453.pdf)
 
 ---
 
@@ -2548,7 +2548,7 @@ Boris
 
 Mette
 
-[PDF](../pdf/mette/EFTA02584240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584240.pdf)
+[PDF](../../pdf/mette/EFTA02584240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584240.pdf)
 
 ---
 
@@ -2562,7 +2562,7 @@ Mette
 
 of coufse not
 
-[PDF](../pdf/mette/EFTA00990672.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990672.pdf)
+[PDF](../../pdf/mette/EFTA00990672.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990672.pdf)
 
 ---
 
@@ -2576,7 +2576,7 @@ of coufse not
 
 Do you want Austin's film crew to come to the house with him? (I already said you probably do not!)
 
-[PDF](../pdf/mette/EFTA00990669.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990669.pdf)
+[PDF](../../pdf/mette/EFTA00990669.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990669.pdf)
 
 ---
 
@@ -2590,7 +2590,7 @@ Do you want Austin's film crew to come to the house with him? (I already said yo
 
 austin at I ok
 
-[PDF](../pdf/mette/EFTA00990668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990668.pdf)
+[PDF](../../pdf/mette/EFTA00990668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990668.pdf)
 
 ---
 
@@ -2610,7 +2610,7 @@ austin at I ok
 
 3:00 wheels up to island
 
-[PDF](../pdf/mette/EFTA00990666.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990666.pdf)
+[PDF](../../pdf/mette/EFTA00990666.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990666.pdf)
 
 ---
 
@@ -2624,7 +2624,7 @@ austin at I ok
 
 
 
-[PDF](../pdf/mette/EFTA01919682.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919682.pdf)
+[PDF](../../pdf/mette/EFTA01919682.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919682.pdf)
 
 ---
 
@@ -2638,7 +2638,7 @@ austin at I ok
 
 
 
-[PDF](../pdf/mette/EFTA01919591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919591.pdf)
+[PDF](../../pdf/mette/EFTA01919591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919591.pdf)
 
 ---
 
@@ -2652,7 +2652,7 @@ austin at I ok
 
 austin at I ok
 
-[PDF](../pdf/mette/EFTA01919479.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919479.pdf)
+[PDF](../../pdf/mette/EFTA01919479.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919479.pdf)
 
 ---
 
@@ -2666,7 +2666,7 @@ austin at I ok
 
 Ok thanks
 
-[PDF](../pdf/mette/EFTA02103943.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02103943.pdf)
+[PDF](../../pdf/mette/EFTA02103943.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02103943.pdf)
 
 ---
 
@@ -2686,7 +2686,7 @@ Ok thanks
 
 3:00 wheels up to island
 
-[PDF](../pdf/mette/EFTA02704779.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02704779.pdf)
+[PDF](../../pdf/mette/EFTA02704779.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02704779.pdf)
 
 ---
 
@@ -2706,7 +2706,7 @@ Ok thanks
 
 3:00 wheels up to island
 
-[PDF](../pdf/mette/EFTA02584830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584830.pdf)
+[PDF](../../pdf/mette/EFTA02584830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584830.pdf)
 
 ---
 
@@ -2726,7 +2726,7 @@ Ok thanks
 
 3:00 wheels up to island
 
-[PDF](../pdf/mette/EFTA01919046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919046.pdf)
+[PDF](../../pdf/mette/EFTA01919046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919046.pdf)
 
 ---
 
@@ -2740,7 +2740,7 @@ Ok thanks
 
 11
 
-[PDF](../pdf/mette/EFTA01920785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920785.pdf)
+[PDF](../../pdf/mette/EFTA01920785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920785.pdf)
 
 ---
 
@@ -2756,7 +2756,7 @@ They cannot. The earliest Anna can do is I lam. Sent email earlier re this Do yo
 
 Or keep 12?
 
-[PDF](../pdf/mette/EFTA01920732.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920732.pdf)
+[PDF](../../pdf/mette/EFTA01920732.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920732.pdf)
 
 ---
 
@@ -2770,7 +2770,7 @@ Or keep 12?
 
 i asked if kathrine and ana can do 9 am?
 
-[PDF](../pdf/mette/EFTA01920684.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920684.pdf)
+[PDF](../../pdf/mette/EFTA01920684.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920684.pdf)
 
 ---
 
@@ -2790,7 +2790,7 @@ i asked if kathrine and ana can do 9 am?
 
 7pm wheel up to island
 
-[PDF](../pdf/mette/EFTA02584280.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584280.pdf)
+[PDF](../../pdf/mette/EFTA02584280.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584280.pdf)
 
 ---
 
@@ -2818,7 +2818,7 @@ To stop receiving these notifications. please log in to https://www.google.corni
 
 EFTA00368345
 
-[PDF](../pdf/mette/EFTA00368345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368345.pdf)
+[PDF](../../pdf/mette/EFTA00368345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368345.pdf)
 
 ---
 
@@ -2834,7 +2834,7 @@ Hello Mette. Might you be able to come see Jeffrey tomorrow!? What time would be
 
 good for you?
 
-[PDF](../pdf/kronprinsessen/EFTA02104941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104941.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02104941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104941.pdf)
 
 ---
 
@@ -2850,7 +2850,7 @@ Hello Mette. Might you be able to come see Jeffrey tomorrow!? What time would be
 
 good for you?
 
-[PDF](../pdf/mette/EFTA02104941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104941.pdf)
+[PDF](../../pdf/mette/EFTA02104941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104941.pdf)
 
 ---
 
@@ -2864,7 +2864,7 @@ good for you?
 
 well?
 
-[PDF](../pdf/kronprinsessen/EFTA00991108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991108.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00991108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991108.pdf)
 
 ---
 
@@ -2906,7 +2906,7 @@ EFTA00368290
 
 EFTA00368291
 
-[PDF](../pdf/mette/EFTA00368290.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368290.pdf)
+[PDF](../../pdf/mette/EFTA00368290.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368290.pdf)
 
 ---
 
@@ -2948,7 +2948,7 @@ EFTA00991102
 
 EFTA00991103
 
-[PDF](../pdf/mette/EFTA00991102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991102.pdf)
+[PDF](../../pdf/mette/EFTA00991102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991102.pdf)
 
 ---
 
@@ -2962,7 +2962,7 @@ EFTA00991103
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01921290.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921290.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01921290.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921290.pdf)
 
 ---
 
@@ -2996,7 +2996,7 @@ EFTA_R1_00718506
 
 EFTA02105034
 
-[PDF](../pdf/mette/EFTA02105034.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02105034.pdf)
+[PDF](../../pdf/mette/EFTA02105034.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02105034.pdf)
 
 ---
 
@@ -3012,7 +3012,7 @@ is scheduled for 10am today
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00368287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368287.pdf)
+[PDF](../../pdf/mette/EFTA00368287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368287.pdf)
 
 ---
 
@@ -3028,7 +3028,7 @@ Meira is scheduled for 10am today
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00991099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991099.pdf)
+[PDF](../../pdf/mette/EFTA00991099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991099.pdf)
 
 ---
 
@@ -3046,7 +3046,7 @@ EFTA_R1_00363800
 
 EFTA01920612
 
-[PDF](../pdf/mette/EFTA01920612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920612.pdf)
+[PDF](../../pdf/mette/EFTA01920612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920612.pdf)
 
 ---
 
@@ -3096,7 +3096,7 @@ EFTA_R1_01763804
 
 EFTA02584788
 
-[PDF](../pdf/mette/EFTA02584787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584787.pdf)
+[PDF](../../pdf/mette/EFTA02584787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584787.pdf)
 
 ---
 
@@ -3146,7 +3146,7 @@ EFTA_R1_00363680
 
 EFTA01920533
 
-[PDF](../pdf/mette/EFTA01920532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920532.pdf)
+[PDF](../../pdf/mette/EFTA01920532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920532.pdf)
 
 ---
 
@@ -3160,7 +3160,7 @@ EFTA01920533
 
 
 
-[PDF](../pdf/mette/EFTA02104674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104674.pdf)
+[PDF](../../pdf/mette/EFTA02104674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104674.pdf)
 
 ---
 
@@ -3176,7 +3176,7 @@ s scheduled for 10am today
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01920424.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920424.pdf)
+[PDF](../../pdf/mette/EFTA01920424.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920424.pdf)
 
 ---
 
@@ -3194,7 +3194,7 @@ ramsey,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00368282.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368282.pdf)
+[PDF](../../pdf/mette/EFTA00368282.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368282.pdf)
 
 ---
 
@@ -3210,7 +3210,7 @@ do we have mon apt. , ? otherwise ask= orM, also schedules or another at 12.30 a
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00991075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991075.pdf)
+[PDF](../../pdf/mette/EFTA00991075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991075.pdf)
 
 ---
 
@@ -3224,7 +3224,7 @@ do we have mon apt. , ? otherwise ask= orM, also schedules or another at 12.30 a
 
 
 
-[PDF](../pdf/mette/EFTA01919370.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919370.pdf)
+[PDF](../../pdf/mette/EFTA01919370.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919370.pdf)
 
 ---
 
@@ -3298,7 +3298,7 @@ Mette?
 
 EFTA00991050
 
-[PDF](../pdf/mette/EFTA00991049.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991049.pdf)
+[PDF](../../pdf/mette/EFTA00991049.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991049.pdf)
 
 ---
 
@@ -3374,7 +3374,7 @@ Mette?
 
 EFTA00368273
 
-[PDF](../pdf/mette/EFTA00368272.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368272.pdf)
+[PDF](../../pdf/mette/EFTA00368272.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368272.pdf)
 
 ---
 
@@ -3452,7 +3452,7 @@ EFTA01928245
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01928244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01928244.pdf)
+[PDF](../../pdf/mette/EFTA01928244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01928244.pdf)
 
 ---
 
@@ -3530,7 +3530,7 @@ EFTA02584380
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02584379.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584379.pdf)
+[PDF](../../pdf/mette/EFTA02584379.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584379.pdf)
 
 ---
 
@@ -3600,7 +3600,7 @@ Mette?
 
 EFTA00368240
 
-[PDF](../pdf/mette/EFTA00368239.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368239.pdf)
+[PDF](../../pdf/mette/EFTA00368239.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368239.pdf)
 
 ---
 
@@ -3670,7 +3670,7 @@ Mette?
 
 EFTA00669786
 
-[PDF](../pdf/mette/EFTA00669785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00669785.pdf)
+[PDF](../../pdf/mette/EFTA00669785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00669785.pdf)
 
 ---
 
@@ -3744,7 +3744,7 @@ EFTA_R1_00369457
 
 EFTA01924558
 
-[PDF](../pdf/mette/EFTA01924557.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924557.pdf)
+[PDF](../../pdf/mette/EFTA01924557.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924557.pdf)
 
 ---
 
@@ -3780,7 +3780,7 @@ Woody?
 
 EFTA00368228
 
-[PDF](../pdf/mette/EFTA00368228.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368228.pdf)
+[PDF](../../pdf/mette/EFTA00368228.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368228.pdf)
 
 ---
 
@@ -3816,7 +3816,7 @@ Woody?
 
 EFTA00368222
 
-[PDF](../pdf/mette/EFTA00368222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368222.pdf)
+[PDF](../../pdf/mette/EFTA00368222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368222.pdf)
 
 ---
 
@@ -3852,7 +3852,7 @@ Woody?
 
 EFTA00641036
 
-[PDF](../pdf/mette/EFTA00641036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00641036.pdf)
+[PDF](../../pdf/mette/EFTA00641036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00641036.pdf)
 
 ---
 
@@ -3892,7 +3892,7 @@ EFTA_R1_00367516
 
 EFTA01923244
 
-[PDF](../pdf/mette/EFTA01923244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01923244.pdf)
+[PDF](../../pdf/mette/EFTA01923244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01923244.pdf)
 
 ---
 
@@ -3920,7 +3920,7 @@ Assistant to Jeffrey Epstein
 
 EFTA00368206
 
-[PDF](../pdf/mette/EFTA00368206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368206.pdf)
+[PDF](../../pdf/mette/EFTA00368206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368206.pdf)
 
 ---
 
@@ -3946,7 +3946,7 @@ EFTA_R1_00716978
 
 EFTA02104339
 
-[PDF](../pdf/mette/EFTA02104339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104339.pdf)
+[PDF](../../pdf/mette/EFTA02104339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02104339.pdf)
 
 ---
 
@@ -3980,7 +3980,7 @@ Subject: Re: amFAR Inspiration gala
 
 find a nice place to live so you are happy there
 
-[PDF](../pdf/mette/EFTA01750875.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01750875.pdf)
+[PDF](../../pdf/mette/EFTA01750875.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01750875.pdf)
 
 ---
 
@@ -3996,7 +3996,7 @@ find a nice place to live so you are happy there
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01924767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924767.pdf)
+[PDF](../../pdf/mette/EFTA01924767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924767.pdf)
 
 ---
 
@@ -4018,7 +4018,7 @@ Subject:
 
 To: "jeffrey E." Think tuesday will work
 
-[PDF](../pdf/kronprinsessen/EFTA00368174.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368174.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00368174.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368174.pdf)
 
 ---
 
@@ -4040,7 +4040,7 @@ Subject:
 
 To: "jeffrey E." Think tuesday will work
 
-[PDF](../pdf/kronprinsessen/EFTA00990837.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990837.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00990837.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990837.pdf)
 
 ---
 
@@ -4054,7 +4054,7 @@ To: "jeffrey E." Think tuesday will work
 
 Yes 330
 
-[PDF](../pdf/mette/EFTA01921538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921538.pdf)
+[PDF](../../pdf/mette/EFTA01921538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921538.pdf)
 
 ---
 
@@ -4076,7 +4076,7 @@ Subject:
 
 To: Jeffrey E." Think tuesday will work
 
-[PDF](../pdf/kronprinsessen/EFTA01921495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921495.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01921495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921495.pdf)
 
 ---
 
@@ -4090,7 +4090,7 @@ To: Jeffrey E." Think tuesday will work
 
 Think tuesday will work
 
-[PDF](../pdf/kronprinsessen/EFTA00990835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990835.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00990835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990835.pdf)
 
 ---
 
@@ -4148,7 +4148,7 @@ EFTA R1_00044986
 
 EFTA01748806
 
-[PDF](../pdf/mette/EFTA01748805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01748805.pdf)
+[PDF](../../pdf/mette/EFTA01748805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01748805.pdf)
 
 ---
 
@@ -4162,7 +4162,7 @@ EFTA01748806
 
 skip. I will leave tuesday at 5 then thanks for the warning
 
-[PDF](../pdf/mette/EFTA00990825.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990825.pdf)
+[PDF](../../pdf/mette/EFTA00990825.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990825.pdf)
 
 ---
 
@@ -4180,7 +4180,7 @@ Den 5. juni 2014 Id. 22:08 skrev "jeffrey E." :
 
 do i get to see you in ny?
 
-[PDF](../pdf/kronprinsessen/EFTA01752382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01752382.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01752382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01752382.pdf)
 
 ---
 
@@ -4198,7 +4198,7 @@ O.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01920054-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054-1.pdf)
+[PDF](../../pdf/mette/EFTA01920054-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054-1.pdf)
 
 ---
 
@@ -4216,7 +4216,7 @@ O.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01920054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054.pdf)
+[PDF](../../pdf/mette/EFTA01920054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054.pdf)
 
 ---
 
@@ -4260,7 +4260,7 @@ EFTA_R1_00361614
 
 EFTA01919412
 
-[PDF](../pdf/mette/EFTA01919412.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919412.pdf)
+[PDF](../../pdf/mette/EFTA01919412.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919412.pdf)
 
 ---
 
@@ -4274,7 +4274,7 @@ EFTA01919412
 
 do i get to see you in ny?
 
-[PDF](../pdf/kronprinsessen/EFTA00991311.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991311.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00991311.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991311.pdf)
 
 ---
 
@@ -4344,7 +4344,7 @@ Josh Wood Productions
 
 www.joshwordproductions.com O
 
-[PDF](../pdf/mette/EFTA02717724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02717724.pdf)
+[PDF](../../pdf/mette/EFTA02717724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02717724.pdf)
 
 ---
 
@@ -4358,7 +4358,7 @@ www.joshwordproductions.com O
 
 happy national day, hope you are well
 
-[PDF](../pdf/kronprinsessen/EFTA00989216.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00989216.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00989216.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00989216.pdf)
 
 ---
 
@@ -4372,7 +4372,7 @@ happy national day, hope you are well
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01924810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924810.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01924810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924810.pdf)
 
 ---
 
@@ -4386,7 +4386,7 @@ happy national day, hope you are well
 
 origins institue tempe arizona. , violinece humanity,
 
-[PDF](../pdf/kronprinsessen/EFTA00986591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00986591.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00986591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00986591.pdf)
 
 ---
 
@@ -4400,7 +4400,7 @@ origins institue tempe arizona. , violinece humanity,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01931545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01931545.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01931545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01931545.pdf)
 
 ---
 
@@ -4414,7 +4414,7 @@ origins institue tempe arizona. , violinece humanity,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02582200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02582200.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02582200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02582200.pdf)
 
 ---
 
@@ -4428,7 +4428,7 @@ origins institue tempe arizona. , violinece humanity,
 
 thursday, fine, ill delay . and stay till the 20th
 
-[PDF](../pdf/mette/EFTA01935214.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935214.pdf)
+[PDF](../../pdf/mette/EFTA01935214.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935214.pdf)
 
 ---
 
@@ -4454,7 +4454,7 @@ Le 6 fevr. 2014 A 19:34, "Jeffrey Epstein" a ecrit :
 
 I think you and Mette will really get along. you share many interests
 
-[PDF](../pdf/mette/EFTA00983345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983345.pdf)
+[PDF](../../pdf/mette/EFTA00983345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983345.pdf)
 
 ---
 
@@ -4480,7 +4480,7 @@ Le 6 few. 2014 a 19:34, "Jeffrey Epstein" a ocrit :
 
 I think you and Mette will really get along. you share many interests
 
-[PDF](../pdf/mette/EFTA01937473.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01937473.pdf)
+[PDF](../../pdf/mette/EFTA01937473.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01937473.pdf)
 
 ---
 
@@ -4506,7 +4506,7 @@ Le 6 few. 2014 a 19:34, "Jeffrey Epstein" a ocrit :
 
 I think you and Mette will really get along. you share many interests
 
-[PDF](../pdf/mette/EFTA02724541.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02724541.pdf)
+[PDF](../../pdf/mette/EFTA02724541.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02724541.pdf)
 
 ---
 
@@ -4520,7 +4520,7 @@ I think you and Mette will really get along. you share many interests
 
 I think you and Mette will really get along. you share many interests
 
-[PDF](../pdf/mette/EFTA00983339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983339.pdf)
+[PDF](../../pdf/mette/EFTA00983339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983339.pdf)
 
 ---
 
@@ -4534,7 +4534,7 @@ I think you and Mette will really get along. you share many interests
 
 I think you and Ariane will really get along. you share many interests
 
-[PDF](../pdf/kronprinsessen/EFTA00983338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983338.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00983338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983338.pdf)
 
 ---
 
@@ -4548,7 +4548,7 @@ I think you and Ariane will really get along. you share many interests
 
 
 
-[PDF](../pdf/mette/EFTA01935300.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935300.pdf)
+[PDF](../../pdf/mette/EFTA01935300.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935300.pdf)
 
 ---
 
@@ -4562,7 +4562,7 @@ I think you and Ariane will really get along. you share many interests
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01935241.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935241.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01935241.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935241.pdf)
 
 ---
 
@@ -4582,7 +4582,7 @@ EFTA_R1_00391807
 
 EFTA01936423
 
-[PDF](../pdf/mette/EFTA01936423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01936423.pdf)
+[PDF](../../pdf/mette/EFTA01936423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01936423.pdf)
 
 ---
 
@@ -4598,7 +4598,7 @@ haha
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01935377.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935377.pdf)
+[PDF](../../pdf/mette/EFTA01935377.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935377.pdf)
 
 ---
 
@@ -4626,7 +4626,7 @@ french and half- happy, already too good to be true;)
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01935329.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935329.pdf)
+[PDF](../../pdf/mette/EFTA01935329.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935329.pdf)
 
 ---
 
@@ -4640,7 +4640,7 @@ french and half- happy, already too good to be true;)
 
 
 
-[PDF](../pdf/mette/EFTA02103997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02103997.pdf)
+[PDF](../../pdf/mette/EFTA02103997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02103997.pdf)
 
 ---
 
@@ -4666,7 +4666,7 @@ was 2% , CMB said it was low, I said it's the deal take it or leave it, they sug
 
 this point. That's where we left off„
 
-[PDF](../pdf/mette/EFTA00871031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00871031.pdf)
+[PDF](../../pdf/mette/EFTA00871031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00871031.pdf)
 
 ---
 
@@ -4696,7 +4696,7 @@ left off„
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01938303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01938303.pdf)
+[PDF](../../pdf/mette/EFTA01938303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01938303.pdf)
 
 ---
 
@@ -4714,7 +4714,7 @@ developer so he can initiate contact and give the name of the LLC
 
 for the contract so it can be drafted for Monday.
 
-[PDF](../pdf/mette/EFTA00651081.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00651081.pdf)
+[PDF](../../pdf/mette/EFTA00651081.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00651081.pdf)
 
 ---
 
@@ -4732,7 +4732,7 @@ be paid to shelly and mette and split , 20k for mettea and 100k for shelly.. clo
 
 Ilc. please confirm this understanding.
 
-[PDF](../pdf/mette/EFTA00982609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982609.pdf)
+[PDF](../../pdf/mette/EFTA00982609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982609.pdf)
 
 ---
 
@@ -4746,7 +4746,7 @@ Ilc. please confirm this understanding.
 
 Follow my directions
 
-[PDF](../pdf/mette/EFTA01936805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01936805.pdf)
+[PDF](../../pdf/mette/EFTA01936805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01936805.pdf)
 
 ---
 
@@ -4762,7 +4762,7 @@ Mette says he doesn't link it's professional to make the offer on the spot w=th 
 
 from the office. How should I p=oceed?
 
-[PDF](../pdf/mette/EFTA02580415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02580415.pdf)
+[PDF](../../pdf/mette/EFTA02580415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02580415.pdf)
 
 ---
 
@@ -4776,7 +4776,7 @@ from the office. How should I p=oceed?
 
 Ok. So I'm "representing myself" and will push to speak directly to the seller. I'll go alone
 
-[PDF](../pdf/mette/EFTA00705878.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00705878.pdf)
+[PDF](../../pdf/mette/EFTA00705878.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00705878.pdf)
 
 ---
 
@@ -4790,7 +4790,7 @@ Ok. So I'm "representing myself" and will push to speak directly to the seller. 
 
 Ok. So I'm "representing myself' and will push to speak directly to the seller. I'll go alone
 
-[PDF](../pdf/mette/EFTA01750983.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01750983.pdf)
+[PDF](../../pdf/mette/EFTA01750983.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01750983.pdf)
 
 ---
 
@@ -4804,7 +4804,7 @@ Ok. So I'm "representing myself' and will push to speak directly to the seller. 
 
 you are an all cash buyer, and can close quickly. you can intimate that your boyfriend is buying it for you
 
-[PDF](../pdf/mette/EFTA00982046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982046.pdf)
+[PDF](../../pdf/mette/EFTA00982046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982046.pdf)
 
 ---
 
@@ -4820,7 +4820,7 @@ Fit
 
 I hope you feel better, text u in the morning, feel crappy
 
-[PDF](../pdf/mette/EFTA00982035.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982035.pdf)
+[PDF](../../pdf/mette/EFTA00982035.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982035.pdf)
 
 ---
 
@@ -4834,7 +4834,7 @@ I hope you feel better, text u in the morning, feel crappy
 
 as long as he is not going to charge you take him
 
-[PDF](../pdf/mette/EFTA00982024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982024.pdf)
+[PDF](../../pdf/mette/EFTA00982024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982024.pdf)
 
 ---
 
@@ -4850,7 +4850,7 @@ So, please just answer me this. When I go on Friday should I go with Mette as th
 
 EFTA00982023
 
-[PDF](../pdf/mette/EFTA00982023.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982023.pdf)
+[PDF](../../pdf/mette/EFTA00982023.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982023.pdf)
 
 ---
 
@@ -4864,7 +4864,7 @@ EFTA00982023
 
 spoke to boris , glad to hear you are feeling better
 
-[PDF](../pdf/kronprinsessen/EFTA00982400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982400.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00982400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00982400.pdf)
 
 ---
 
@@ -4896,7 +4896,7 @@ I'll be happy to. What time is good for you ? :)
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA02405339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02405339.pdf)
+[PDF](../../pdf/kpm/EFTA02405339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02405339.pdf)
 
 ---
 
@@ -4912,7 +4912,7 @@ You can say that
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00980225.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980225.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980225.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980225.pdf)
 
 ---
 
@@ -4926,7 +4926,7 @@ You can say that
 
 well that must have been a neurotic expereince for the two of you ; )
 
-[PDF](../pdf/kronprinsessen/EFTA00980217.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980217.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980217.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980217.pdf)
 
 ---
 
@@ -4940,7 +4940,7 @@ well that must have been a neurotic expereince for the two of you ; )
 
 Woody Allen at my house for a week
 
-[PDF](../pdf/kronprinsessen/EFTA00980215.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980215.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980215.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980215.pdf)
 
 ---
 
@@ -4956,7 +4956,7 @@ You can say that
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01940542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940542.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01940542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940542.pdf)
 
 ---
 
@@ -4972,7 +4972,7 @@ well that must have been a neurotic expereince for the two of you ; )
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01940087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940087.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01940087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940087.pdf)
 
 ---
 
@@ -4986,7 +4986,7 @@ well that must have been a neurotic expereince for the two of you ; )
 
 Woody Allen at my house for a week
 
-[PDF](../pdf/kronprinsessen/EFTA01940026.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940026.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01940026.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940026.pdf)
 
 ---
 
@@ -5000,7 +5000,7 @@ Woody Allen at my house for a week
 
 Im reading pale fire
 
-[PDF](../pdf/kronprinsessen/EFTA00680541.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680541.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00680541.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680541.pdf)
 
 ---
 
@@ -5016,7 +5016,7 @@ Good
 
 Christmas fun?
 
-[PDF](../pdf/kronprinsessen/EFTA00680534.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680534.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00680534.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680534.pdf)
 
 ---
 
@@ -5030,7 +5030,7 @@ Christmas fun?
 
 Both today
 
-[PDF](../pdf/kronprinsessen/EFTA00980194.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980194.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980194.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980194.pdf)
 
 ---
 
@@ -5050,7 +5050,7 @@ How are u
 
 Sun or snow?
 
-[PDF](../pdf/kronprinsessen/EFTA00980193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980193.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980193.pdf)
 
 ---
 
@@ -5064,7 +5064,7 @@ Sun or snow?
 
 Im reading pale fire
 
-[PDF](../pdf/kronprinsessen/EFTA01942938.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942938.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01942938.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942938.pdf)
 
 ---
 
@@ -5080,7 +5080,7 @@ Good
 
 Christmas fun?
 
-[PDF](../pdf/kronprinsessen/EFTA01942902.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942902.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01942902.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942902.pdf)
 
 ---
 
@@ -5094,7 +5094,7 @@ Christmas fun?
 
 Both today
 
-[PDF](../pdf/kronprinsessen/EFTA01942880.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942880.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01942880.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942880.pdf)
 
 ---
 
@@ -5114,7 +5114,7 @@ How are u
 
 Sun or snow?
 
-[PDF](../pdf/kronprinsessen/EFTA01942737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942737.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01942737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01942737.pdf)
 
 ---
 
@@ -5128,7 +5128,7 @@ Sun or snow?
 
 i ye been thinking about you how are you feeling. ?
 
-[PDF](../pdf/kronprinsessen/EFTA00980126.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980126.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00980126.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980126.pdf)
 
 ---
 
@@ -5142,7 +5142,7 @@ i ye been thinking about you how are you feeling. ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01943684.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01943684.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01943684.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01943684.pdf)
 
 ---
 
@@ -5156,7 +5156,7 @@ i ye been thinking about you how are you feeling. ?
 
 where for the holidays?
 
-[PDF](../pdf/kronprinsessen/EFTA00979378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00979378.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00979378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00979378.pdf)
 
 ---
 
@@ -5170,7 +5170,7 @@ where for the holidays?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01944566.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01944566.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01944566.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01944566.pdf)
 
 ---
 
@@ -5218,7 +5218,7 @@ EFTA01751208
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01751207.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01751207.pdf)
+[PDF](../../pdf/mette/EFTA01751207.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01751207.pdf)
 
 ---
 
@@ -5232,7 +5232,7 @@ EFTA01751208
 
 How are you
 
-[PDF](../pdf/kronprinsessen/EFTA00978633.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00978633.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00978633.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00978633.pdf)
 
 ---
 
@@ -5246,7 +5246,7 @@ How are you
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01945437.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01945437.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01945437.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01945437.pdf)
 
 ---
 
@@ -5282,7 +5282,7 @@ EFTA01754028
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01754027.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754027.pdf)
+[PDF](../../pdf/mette/EFTA01754027.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754027.pdf)
 
 ---
 
@@ -5298,7 +5298,7 @@ I miss paris
 
 We need to talk soon
 
-[PDF](../pdf/kronprinsessen/EFTA00627041.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627041.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00627041.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627041.pdf)
 
 ---
 
@@ -5314,7 +5314,7 @@ I miss paris
 
 We need to talk soon
 
-[PDF](../pdf/kronprinsessen/EFTA01754762.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754762.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01754762.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754762.pdf)
 
 ---
 
@@ -5330,7 +5330,7 @@ paris. , if reading makes you tired, try some great audio books. go to itunes un
 
 a class. listen to chinese music.
 
-[PDF](../pdf/kronprinsessen/EFTA01951024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01951024.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01951024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01951024.pdf)
 
 ---
 
@@ -5346,7 +5346,7 @@ Yes there are.
 
 Where are you?
 
-[PDF](../pdf/kronprinsessen/EFTA00627038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627038.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00627038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627038.pdf)
 
 ---
 
@@ -5360,7 +5360,7 @@ Where are you?
 
 S so glad.. there are many books to read
 
-[PDF](../pdf/kronprinsessen/EFTA01950810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950810.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01950810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950810.pdf)
 
 ---
 
@@ -5384,7 +5384,7 @@ EFTA_R1_01751020
 
 EFTA02577875
 
-[PDF](../pdf/kronprinsessen/EFTA02577875.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02577875.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02577875.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02577875.pdf)
 
 ---
 
@@ -5408,7 +5408,7 @@ EFTA_R1_02096130
 
 EFTA02705598
 
-[PDF](../pdf/kronprinsessen/EFTA02705598.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02705598.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02705598.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02705598.pdf)
 
 ---
 
@@ -5432,7 +5432,7 @@ EFTA_R1_00417201
 
 EFTA01950790
 
-[PDF](../pdf/kronprinsessen/EFTA01950790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950790.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01950790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950790.pdf)
 
 ---
 
@@ -5454,7 +5454,7 @@ EFTA_R1_01380233
 
 EFTA02373909
 
-[PDF](../pdf/mette/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
+[PDF](../../pdf/mette/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
 
 ---
 
@@ -5476,7 +5476,7 @@ EFTA_R1_01380233
 
 EFTA02373909
 
-[PDF](../pdf/mette-marit/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
+[PDF](../../pdf/mette-marit/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
 
 ---
 
@@ -5490,7 +5490,7 @@ EFTA02373909
 
 
 
-[PDF](../pdf/mette/EFTA00871895.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00871895.pdf)
+[PDF](../../pdf/mette/EFTA00871895.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00871895.pdf)
 
 ---
 
@@ -5504,7 +5504,7 @@ EFTA02373909
 
 
 
-[PDF](../pdf/mette/EFTA01951939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01951939.pdf)
+[PDF](../../pdf/mette/EFTA01951939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01951939.pdf)
 
 ---
 
@@ -5534,7 +5534,7 @@ I can have someone go , tucsday , but your contract should be subject to inspect
 
 go on the 12 th to yuri with you. / give mette a hug, / need 2 hrs bill time. /
 
-[PDF](../pdf/mette/EFTA01754399.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754399.pdf)
+[PDF](../../pdf/mette/EFTA01754399.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754399.pdf)
 
 ---
 
@@ -5550,7 +5550,7 @@ I can have someone go , tuesday , but your contract should be subject to inspect
 
 yuri with you. I give mette a hug, I need 2 hrs bill time. I
 
-[PDF](../pdf/mette/EFTA00975556.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975556.pdf)
+[PDF](../../pdf/mette/EFTA00975556.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975556.pdf)
 
 ---
 
@@ -5564,7 +5564,7 @@ yuri with you. I give mette a hug, I need 2 hrs bill time. I
 
 
 
-[PDF](../pdf/mette/EFTA01946867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01946867.pdf)
+[PDF](../../pdf/mette/EFTA01946867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01946867.pdf)
 
 ---
 
@@ -5580,7 +5580,7 @@ Thank you my friend
 
 I have good help here.
 
-[PDF](../pdf/kronprinsessen/EFTA00975496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975496.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00975496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975496.pdf)
 
 ---
 
@@ -5596,7 +5596,7 @@ I have good help here.
 
 Hope it goes well. If you prefer us hospital help
 
-[PDF](../pdf/kronprinsessen/EFTA00975487.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975487.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00975487.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975487.pdf)
 
 ---
 
@@ -5610,7 +5610,7 @@ Hope it goes well. If you prefer us hospital help
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01948699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01948699.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01948699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01948699.pdf)
 
 ---
 
@@ -5624,7 +5624,7 @@ Hope it goes well. If you prefer us hospital help
 
 
 
-[PDF](../pdf/kpm/EFTA01752945.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01752945.pdf)
+[PDF](../../pdf/kpm/EFTA01752945.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01752945.pdf)
 
 ---
 
@@ -5638,7 +5638,7 @@ Hope it goes well. If you prefer us hospital help
 
 any better?
 
-[PDF](../pdf/kronprinsessen/EFTA00975246.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975246.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00975246.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975246.pdf)
 
 ---
 
@@ -5652,7 +5652,7 @@ any better?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01952343.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952343.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01952343.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952343.pdf)
 
 ---
 
@@ -5666,7 +5666,7 @@ any better?
 
 the news said she is out of commision until xmas
 
-[PDF](../pdf/kronprinsessen/EFTA00973442.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00973442.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00973442.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00973442.pdf)
 
 ---
 
@@ -5682,7 +5682,7 @@ Lets all of us go to jee's island to recover on a sun 0
 
 B
 
-[PDF](../pdf/kronprinsessen/EFTA00676010.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676010.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00676010.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676010.pdf)
 
 ---
 
@@ -5704,7 +5704,7 @@ Lets all of us=go to jee's island to recover on a sun
 
 B
 
-[PDF](../pdf/kronprinsessen/EFTA02576070.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02576070.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02576070.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02576070.pdf)
 
 ---
 
@@ -5718,7 +5718,7 @@ B
 
 the news said she is out of coramision until xmas
 
-[PDF](../pdf/kronprinsessen/EFTA01952894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952894.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01952894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952894.pdf)
 
 ---
 
@@ -5734,7 +5734,7 @@ Lets all of us go to jee's island to recover on a sun
 
 B
 
-[PDF](../pdf/kronprinsessen/EFTA01753717.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01753717.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01753717.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01753717.pdf)
 
 ---
 
@@ -5750,7 +5750,7 @@ Lets all of us go to jee's island to recover on a sun
 
 B
 
-[PDF](../pdf/kronprinsessen/EFTA01952835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952835.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01952835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952835.pdf)
 
 ---
 
@@ -5776,7 +5776,7 @@ Den 22. okt. 2013 Id. 19:58 skrev Jeffrey Epstein :
 
 arc you ok? what happened with your neck?
 
-[PDF](../pdf/kronprinsessen/EFTA01949357.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949357.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01949357.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949357.pdf)
 
 ---
 
@@ -5790,7 +5790,7 @@ arc you ok? what happened with your neck?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01949255.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949255.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01949255.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949255.pdf)
 
 ---
 
@@ -5804,7 +5804,7 @@ arc you ok? what happened with your neck?
 
 Will do!! Miss u
 
-[PDF](../pdf/kronprinsessen/EFTA00972928.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972928.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00972928.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972928.pdf)
 
 ---
 
@@ -5818,7 +5818,7 @@ Will do!! Miss u
 
 try the financier by theodor dreiser... gone with the wind margaret mitchell.. catch 22 heller. .
 
-[PDF](../pdf/kronprinsessen/EFTA00972924.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972924.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00972924.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972924.pdf)
 
 ---
 
@@ -5850,7 +5850,7 @@ Otherwise good family wise
 
 I could never find anyone to keep up with you!!!
 
-[PDF](../pdf/kronprinsessen/EFTA00972923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972923.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00972923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972923.pdf)
 
 ---
 
@@ -5866,7 +5866,7 @@ have you found my new asst yet. seriously, how are you feeling? . I am interview
 
 so far.
 
-[PDF](../pdf/kronprinsessen/EFTA00972919.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972919.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00972919.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00972919.pdf)
 
 ---
 
@@ -5912,7 +5912,7 @@ Otherwise good family wise
 
 I could never find anyone to keep up with you!!!
 
-[PDF](../pdf/kronprinsessen/EFTA01954521.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954521.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954521.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954521.pdf)
 
 ---
 
@@ -5926,7 +5926,7 @@ I could never find anyone to keep up with you!!!
 
 try the financier by theodor dreiser. .. gone with the wind margaret tnitchell. . catch 22 heller.
 
-[PDF](../pdf/kronprinsessen/EFTA01954381.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954381.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954381.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954381.pdf)
 
 ---
 
@@ -5964,7 +5964,7 @@ have you found my new asst yet. seriously, how arc you feeling? . I am
 
 interviewing in paris. very difficutl so far.
 
-[PDF](../pdf/kronprinsessen/EFTA01954342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954342.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954342.pdf)
 
 ---
 
@@ -5978,7 +5978,7 @@ interviewing in paris. very difficutl so far.
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01954180.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954180.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954180.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954180.pdf)
 
 ---
 
@@ -5992,7 +5992,7 @@ interviewing in paris. very difficutl so far.
 
 back/ neck? emotionally?
 
-[PDF](../pdf/kronprinsessen/EFTA00971989.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971989.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971989.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971989.pdf)
 
 ---
 
@@ -6006,7 +6006,7 @@ back/ neck? emotionally?
 
 N00000
 
-[PDF](../pdf/kronprinsessen/EFTA00663523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00663523.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00663523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00663523.pdf)
 
 ---
 
@@ -6020,7 +6020,7 @@ N00000
 
 back/ neck? emotionally?
 
-[PDF](../pdf/kronprinsessen/EFTA01950401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01950401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01950401.pdf)
 
 ---
 
@@ -6034,7 +6034,7 @@ back/ neck? emotionally?
 
 N00000
 
-[PDF](../pdf/kronprinsessen/EFTA01949888.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949888.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01949888.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949888.pdf)
 
 ---
 
@@ -6048,7 +6048,7 @@ N00000
 
 N00000
 
-[PDF](../pdf/kronprinsessen/EFTA01949888-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949888-1.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01949888-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949888-1.pdf)
 
 ---
 
@@ -6062,7 +6062,7 @@ N00000
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01955542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955542.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01955542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955542.pdf)
 
 ---
 
@@ -6082,7 +6082,7 @@ EFTA_R1_00765525
 
 EFTA02126727
 
-[PDF](../pdf/mette/EFTA02126727.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126727.pdf)
+[PDF](../../pdf/mette/EFTA02126727.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126727.pdf)
 
 ---
 
@@ -6102,7 +6102,7 @@ boris mette. landon christakis, josh ramo. olover arian
 
 terje ste hanson leon, richardosnb branson
 
-[PDF](../pdf/mette/EFTA00971413.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971413.pdf)
+[PDF](../../pdf/mette/EFTA00971413.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971413.pdf)
 
 ---
 
@@ -6116,7 +6116,7 @@ terje ste hanson leon, richardosnb branson
 
 
 
-[PDF](../pdf/mette/EFTA01955603.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955603.pdf)
+[PDF](../../pdf/mette/EFTA01955603.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955603.pdf)
 
 ---
 
@@ -6130,7 +6130,7 @@ terje ste hanson leon, richardosnb branson
 
 I love being home with the kids
 
-[PDF](../pdf/kronprinsessen/EFTA00971313.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971313.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971313.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971313.pdf)
 
 ---
 
@@ -6146,7 +6146,7 @@ A bit
 
 Thanx
 
-[PDF](../pdf/kronprinsessen/EFTA00971312.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971312.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971312.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971312.pdf)
 
 ---
 
@@ -6166,7 +6166,7 @@ boris mette. landon christakis, josh ramo.
 
 terje ste hanson leon,
 
-[PDF](../pdf/mette/EFTA00971304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971304.pdf)
+[PDF](../../pdf/mette/EFTA00971304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971304.pdf)
 
 ---
 
@@ -6186,7 +6186,7 @@ boris mette. landon christakis, josh ramo.
 
 terje ste hanson
 
-[PDF](../pdf/mette/EFTA00971301.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971301.pdf)
+[PDF](../../pdf/mette/EFTA00971301.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971301.pdf)
 
 ---
 
@@ -6206,7 +6206,7 @@ boris mette.
 
 terje ste hanson
 
-[PDF](../pdf/mette/EFTA00971296.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971296.pdf)
+[PDF](../../pdf/mette/EFTA00971296.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971296.pdf)
 
 ---
 
@@ -6220,7 +6220,7 @@ terje ste hanson
 
 hope you are feeling better
 
-[PDF](../pdf/kronprinsessen/EFTA00971295.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971295.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971295.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971295.pdf)
 
 ---
 
@@ -6238,7 +6238,7 @@ statoil mongolia, visit. mort, ian. ( yuuir,
 
 boris mette.
 
-[PDF](../pdf/mette/EFTA00971294.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971294.pdf)
+[PDF](../../pdf/mette/EFTA00971294.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971294.pdf)
 
 ---
 
@@ -6256,7 +6256,7 @@ Den 28. scp. 2013 Id. 17:51 skrcv Jeffrey Epstein leevacation@gmail.com>:
 
 hope you arc feeling better
 
-[PDF](../pdf/kronprinsessen/EFTA01956830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956830.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01956830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956830.pdf)
 
 ---
 
@@ -6272,7 +6272,7 @@ A bit
 
 Thanx
 
-[PDF](../pdf/kronprinsessen/EFTA01956799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956799.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01956799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956799.pdf)
 
 ---
 
@@ -6286,7 +6286,7 @@ Thanx
 
 
 
-[PDF](../pdf/mette/EFTA01956384.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956384.pdf)
+[PDF](../../pdf/mette/EFTA01956384.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956384.pdf)
 
 ---
 
@@ -6300,7 +6300,7 @@ Thanx
 
 
 
-[PDF](../pdf/mette/EFTA01955846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955846.pdf)
+[PDF](../../pdf/mette/EFTA01955846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955846.pdf)
 
 ---
 
@@ -6314,7 +6314,7 @@ Thanx
 
 
 
-[PDF](../pdf/mette/EFTA01955665.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955665.pdf)
+[PDF](../../pdf/mette/EFTA01955665.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955665.pdf)
 
 ---
 
@@ -6328,7 +6328,7 @@ Thanx
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01955572.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955572.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01955572.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955572.pdf)
 
 ---
 
@@ -6342,7 +6342,7 @@ Thanx
 
 will i see you tomorw
 
-[PDF](../pdf/kronprinsessen/EFTA00971629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971629.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971629.pdf)
 
 ---
 
@@ -6356,7 +6356,7 @@ will i see you tomorw
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01954291.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954291.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954291.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954291.pdf)
 
 ---
 
@@ -6370,7 +6370,7 @@ will i see you tomorw
 
 I may be here on friday . you looked great , would love to catch up.
 
-[PDF](../pdf/kronprinsessen/EFTA00971563.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971563.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971563.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971563.pdf)
 
 ---
 
@@ -6386,7 +6386,7 @@ I left Alma a message, emailed her and spoke to Barbro...Barbro thinks she shoul
 
 you for 10:30, not sure about earlier.
 
-[PDF](../pdf/mette/EFTA00382736.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382736.pdf)
+[PDF](../../pdf/mette/EFTA00382736.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382736.pdf)
 
 ---
 
@@ -6402,7 +6402,7 @@ you for 10:30, not sure about earlier.
 
 =.<
 
-[PDF](../pdf/mette/EFTA00382728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382728.pdf)
+[PDF](../../pdf/mette/EFTA00382728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382728.pdf)
 
 ---
 
@@ -6422,7 +6422,7 @@ EFTA_R1_01655533
 
 EFTA02519375
 
-[PDF](../pdf/kronprinsessen/EFTA02519375.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02519375.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02519375.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02519375.pdf)
 
 ---
 
@@ -6436,7 +6436,7 @@ EFTA02519375
 
 
 
-[PDF](../pdf/mette/EFTA02126388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126388.pdf)
+[PDF](../../pdf/mette/EFTA02126388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126388.pdf)
 
 ---
 
@@ -6454,7 +6454,7 @@ EFTA_R1_00764887
 
 EFTA02126364
 
-[PDF](../pdf/mette/EFTA02126364.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126364.pdf)
+[PDF](../../pdf/mette/EFTA02126364.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02126364.pdf)
 
 ---
 
@@ -6498,7 +6498,7 @@ EFTA00382723
 
 EFTA00382724
 
-[PDF](../pdf/mette/EFTA00382723.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382723.pdf)
+[PDF](../../pdf/mette/EFTA00382723.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382723.pdf)
 
 ---
 
@@ -6518,7 +6518,7 @@ Please confirm back to me this message has been rec'd thanks!
 
 EFTA00382721
 
-[PDF](../pdf/mette/EFTA00382721.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382721.pdf)
+[PDF](../../pdf/mette/EFTA00382721.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382721.pdf)
 
 ---
 
@@ -6532,7 +6532,7 @@ EFTA00382721
 
 Got it
 
-[PDF](../pdf/mette/EFTA02127579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127579.pdf)
+[PDF](../../pdf/mette/EFTA02127579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127579.pdf)
 
 ---
 
@@ -6554,7 +6554,7 @@ Subject: Re:
 
 To: Jeffrey Epstein Def 9
 
-[PDF](../pdf/kronprinsessen/EFTA00872577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872577.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872577.pdf)
 
 ---
 
@@ -6576,7 +6576,7 @@ Subject: Re:
 
 To: Jeffrey Epstein Def 9
 
-[PDF](../pdf/kronprinsessen/EFTA00382715.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382715.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00382715.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382715.pdf)
 
 ---
 
@@ -6590,7 +6590,7 @@ To: Jeffrey Epstein Def 9
 
 yes
 
-[PDF](../pdf/kronprinsessen/EFTA00872575.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872575.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872575.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872575.pdf)
 
 ---
 
@@ -6604,7 +6604,7 @@ yes
 
 Def 9
 
-[PDF](../pdf/kronprinsessen/EFTA01801119.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01801119.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01801119.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01801119.pdf)
 
 ---
 
@@ -6618,7 +6618,7 @@ Def 9
 
 830 or 9
 
-[PDF](../pdf/kronprinsessen/EFTA01953505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01953505.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01953505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01953505.pdf)
 
 ---
 
@@ -6632,7 +6632,7 @@ Def 9
 
 Where?
 
-[PDF](../pdf/kronprinsessen/EFTA01799082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01799082.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01799082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01799082.pdf)
 
 ---
 
@@ -6646,7 +6646,7 @@ Where?
 
 yes
 
-[PDF](../pdf/kronprinsessen/EFTA01961828.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01961828.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01961828.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01961828.pdf)
 
 ---
 
@@ -6714,7 +6714,7 @@ Reminder: Nicholas Christakis in NY Sept. 24 & 25 (
 
 EFTA00382699
 
-[PDF](../pdf/mette/EFTA00382698.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382698.pdf)
+[PDF](../../pdf/mette/EFTA00382698.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382698.pdf)
 
 ---
 
@@ -6732,7 +6732,7 @@ Den 24. sep. 2013 Id. 16:41 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 are you coming by at 8?
 
-[PDF](../pdf/kronprinsessen/EFTA01755767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01755767.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01755767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01755767.pdf)
 
 ---
 
@@ -6746,7 +6746,7 @@ are you coming by at 8?
 
 are you coming by at 8?
 
-[PDF](../pdf/kronprinsessen/EFTA00872547.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872547.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872547.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872547.pdf)
 
 ---
 
@@ -6760,7 +6760,7 @@ are you coming by at 8?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01956950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956950.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01956950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956950.pdf)
 
 ---
 
@@ -6774,7 +6774,7 @@ are you coming by at 8?
 
 skip
 
-[PDF](../pdf/mette/EFTA00382661.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382661.pdf)
+[PDF](../../pdf/mette/EFTA00382661.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382661.pdf)
 
 ---
 
@@ -6808,7 +6808,7 @@ EFTA_R1_00767822
 
 EFTA02127702
 
-[PDF](../pdf/mette/EFTA02127702.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127702.pdf)
+[PDF](../../pdf/mette/EFTA02127702.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127702.pdf)
 
 ---
 
@@ -6852,7 +6852,7 @@ EFTA00383036
 
 EFTA00383037
 
-[PDF](../pdf/mette/EFTA00383036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383036.pdf)
+[PDF](../../pdf/mette/EFTA00383036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383036.pdf)
 
 ---
 
@@ -6866,7 +6866,7 @@ EFTA00383037
 
 or
 
-[PDF](../pdf/kronprinsessen/EFTA00872477.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872477.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872477.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872477.pdf)
 
 ---
 
@@ -6880,7 +6880,7 @@ or
 
 please coordinate time with Leslie,
 
-[PDF](../pdf/kronprinsessen/EFTA00872476.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872476.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872476.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872476.pdf)
 
 ---
 
@@ -6894,7 +6894,7 @@ please coordinate time with Leslie,
 
 please coordinate time with Leslie,
 
-[PDF](../pdf/kronprinsessen/EFTA00383005.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383005.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00383005.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383005.pdf)
 
 ---
 
@@ -6932,7 +6932,7 @@ EFTA_R1_00768333
 
 EFTA02127077
 
-[PDF](../pdf/mette/EFTA02127077.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127077.pdf)
+[PDF](../../pdf/mette/EFTA02127077.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127077.pdf)
 
 ---
 
@@ -6946,7 +6946,7 @@ EFTA02127077
 
 
 
-[PDF](../pdf/mette/EFTA01756879.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01756879.pdf)
+[PDF](../../pdf/mette/EFTA01756879.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01756879.pdf)
 
 ---
 
@@ -6974,7 +6974,7 @@ EFTA_R1_00768396
 
 EFTA02128056
 
-[PDF](../pdf/mette/EFTA02128056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128056.pdf)
+[PDF](../../pdf/mette/EFTA02128056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128056.pdf)
 
 ---
 
@@ -6988,7 +6988,7 @@ EFTA02128056
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01955405.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955405.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01955405.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955405.pdf)
 
 ---
 
@@ -7018,7 +7018,7 @@ Den 24. sep. 2013 Id. 10:19 skrev Jeffrey Epstein :
 
 do I get to sec you?
 
-[PDF](../pdf/kronprinsessen/EFTA02723287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02723287.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02723287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02723287.pdf)
 
 ---
 
@@ -7032,7 +7032,7 @@ do I get to sec you?
 
 III call you when I'm done today around six which number?
 
-[PDF](../pdf/kronprinsessen/EFTA01786189.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01786189.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01786189.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01786189.pdf)
 
 ---
 
@@ -7046,7 +7046,7 @@ III call you when I'm done today around six which number?
 
 please coordinate time with Leslie, =/div>
 
-[PDF](../pdf/kronprinsessen/EFTA02520368.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02520368.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02520368.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02520368.pdf)
 
 ---
 
@@ -7060,7 +7060,7 @@ please coordinate time with Leslie, =/div>
 
 please coordinate time with
 
-[PDF](../pdf/kronprinsessen/EFTA01955196.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955196.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01955196.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955196.pdf)
 
 ---
 
@@ -7074,7 +7074,7 @@ please coordinate time with
 
 scientist at 645, rothschild advisor , 1230 , free at 130 you can join , come atone or both
 
-[PDF](../pdf/kronprinsessen/EFTA01954682.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954682.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954682.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954682.pdf)
 
 ---
 
@@ -7088,7 +7088,7 @@ scientist at 645, rothschild advisor , 1230 , free at 130 you can join , come at
 
 Yes!!!!
 
-[PDF](../pdf/kronprinsessen/EFTA01786369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01786369.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01786369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01786369.pdf)
 
 ---
 
@@ -7102,7 +7102,7 @@ Yes!!!!
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01954328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954328.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954328.pdf)
 
 ---
 
@@ -7122,7 +7122,7 @@ EFTA_R1_00788525
 
 EFTA02127145
 
-[PDF](../pdf/mette/EFTA02127145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127145.pdf)
+[PDF](../../pdf/mette/EFTA02127145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127145.pdf)
 
 ---
 
@@ -7172,7 +7172,7 @@ Ave (Entrance on Street)
 
 EFTA00383159
 
-[PDF](../pdf/mette/EFTA00383158.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383158.pdf)
+[PDF](../../pdf/mette/EFTA00383158.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383158.pdf)
 
 ---
 
@@ -7186,7 +7186,7 @@ EFTA00383159
 
 
 
-[PDF](../pdf/mette/EFTA02575434.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02575434.pdf)
+[PDF](../../pdf/mette/EFTA02575434.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02575434.pdf)
 
 ---
 
@@ -7222,7 +7222,7 @@ EFTA_R1_00768403
 
 EFTA02128061
 
-[PDF](../pdf/mette/EFTA02128061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128061.pdf)
+[PDF](../../pdf/mette/EFTA02128061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128061.pdf)
 
 ---
 
@@ -7242,7 +7242,7 @@ EFTA_R1_00768387
 
 EFTA02128048
 
-[PDF](../pdf/mette/EFTA02128048.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128048.pdf)
+[PDF](../../pdf/mette/EFTA02128048.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128048.pdf)
 
 ---
 
@@ -7270,7 +7270,7 @@ Assistant to Jeffrey Epstein
 
 EFTA00383151
 
-[PDF](../pdf/mette/EFTA00383151.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383151.pdf)
+[PDF](../../pdf/mette/EFTA00383151.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383151.pdf)
 
 ---
 
@@ -7284,7 +7284,7 @@ EFTA00383151
 
 Come visit
 
-[PDF](../pdf/kronprinsessen/EFTA00971170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971170.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971170.pdf)
 
 ---
 
@@ -7312,7 +7312,7 @@ EFTA_R1_00767339
 
 EFTA02127527
 
-[PDF](../pdf/mette/EFTA02127527.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127527.pdf)
+[PDF](../../pdf/mette/EFTA02127527.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127527.pdf)
 
 ---
 
@@ -7358,7 +7358,7 @@ EFTA_R1_00424299
 
 EFTA01954710
 
-[PDF](../pdf/mette/EFTA01954709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954709.pdf)
+[PDF](../../pdf/mette/EFTA01954709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954709.pdf)
 
 ---
 
@@ -7372,7 +7372,7 @@ EFTA01954710
 
 yes
 
-[PDF](../pdf/mette/EFTA01954418.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954418.pdf)
+[PDF](../../pdf/mette/EFTA01954418.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954418.pdf)
 
 ---
 
@@ -7392,7 +7392,7 @@ EFTA_R1_01745583
 
 EFTA02574610
 
-[PDF](../pdf/mette/EFTA02574610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574610.pdf)
+[PDF](../../pdf/mette/EFTA02574610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574610.pdf)
 
 ---
 
@@ -7406,7 +7406,7 @@ EFTA02574610
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01959014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01959014.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01959014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01959014.pdf)
 
 ---
 
@@ -7422,7 +7422,7 @@ welcome. I told boris there are a group of swedish female economists coming to t
 
 are of course welcome.
 
-[PDF](../pdf/kronprinsessen/EFTA00971120.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971120.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00971120.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971120.pdf)
 
 ---
 
@@ -7436,7 +7436,7 @@ are of course welcome.
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01954908.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954908.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954908.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954908.pdf)
 
 ---
 
@@ -7454,7 +7454,7 @@ EFTA_R1_01360277
 
 EFTA02365191
 
-[PDF](../pdf/mette/EFTA02365191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02365191.pdf)
+[PDF](../../pdf/mette/EFTA02365191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02365191.pdf)
 
 ---
 
@@ -7490,7 +7490,7 @@ EFTA_R1_00427227
 
 EFTA01956336
 
-[PDF](../pdf/mette/EFTA01956336.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956336.pdf)
+[PDF](../../pdf/mette/EFTA01956336.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956336.pdf)
 
 ---
 
@@ -7508,7 +7508,7 @@ text or call me if you need anything.:)
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383081.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383081.pdf)
+[PDF](../../pdf/mette/EFTA00383081.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383081.pdf)
 
 ---
 
@@ -7532,7 +7532,7 @@ Mark Tollison
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383074.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383074.pdf)
+[PDF](../../pdf/mette/EFTA00383074.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383074.pdf)
 
 ---
 
@@ -7618,7 +7618,7 @@ EFTA00971533
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00971532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971532.pdf)
+[PDF](../../pdf/mette/EFTA00971532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971532.pdf)
 
 ---
 
@@ -7704,7 +7704,7 @@ EFTA00383067
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383066.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383066.pdf)
+[PDF](../../pdf/mette/EFTA00383066.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383066.pdf)
 
 ---
 
@@ -7720,7 +7720,7 @@ EFTA00383067
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383246.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383246.pdf)
+[PDF](../../pdf/mette/EFTA00383246.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383246.pdf)
 
 ---
 
@@ -7804,7 +7804,7 @@ EFTA00383243
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383242.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383242.pdf)
+[PDF](../../pdf/mette/EFTA00383242.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383242.pdf)
 
 ---
 
@@ -7888,7 +7888,7 @@ EFTA00689588
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00689587.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00689587.pdf)
+[PDF](../../pdf/mette/EFTA00689587.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00689587.pdf)
 
 ---
 
@@ -7906,7 +7906,7 @@ EFTA_R1_00788451
 
 EFTA02128097
 
-[PDF](../pdf/mette/EFTA02128097.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128097.pdf)
+[PDF](../../pdf/mette/EFTA02128097.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128097.pdf)
 
 ---
 
@@ -7930,7 +7930,7 @@ To: Jeffrey Epstein
 
 Dont know yet. Monday day looks best
 
-[PDF](../pdf/kronprinsessen/EFTA00383231.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383231.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00383231.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383231.pdf)
 
 ---
 
@@ -7952,7 +7952,7 @@ Subject: Re:
 
 To: Jeffrey Epstein Dont know yet. Monday day looks best
 
-[PDF](../pdf/kronprinsessen/EFTA00872781.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872781.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872781.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872781.pdf)
 
 ---
 
@@ -7982,7 +7982,7 @@ To stop receiving these notifications, please log in to https:thmw.google.comica
 
 EFTA00383230
 
-[PDF](../pdf/mette/EFTA00383230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383230.pdf)
+[PDF](../../pdf/mette/EFTA00383230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383230.pdf)
 
 ---
 
@@ -8000,7 +8000,7 @@ EFTA_R1_00767377
 
 EFTA02127532
 
-[PDF](../pdf/mette/EFTA02127532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127532.pdf)
+[PDF](../../pdf/mette/EFTA02127532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127532.pdf)
 
 ---
 
@@ -8024,7 +8024,7 @@ To: Jeffrey Epstein leevacation@gmail.com>
 
 Dont know yet. Monday day looks best
 
-[PDF](../pdf/kronprinsessen/EFTA01954911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954911.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954911.pdf)
 
 ---
 
@@ -8038,7 +8038,7 @@ Dont know yet. Monday day looks best
 
 Dont know yet. Monday day looks best
 
-[PDF](../pdf/kronprinsessen/EFTA00675602.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00675602.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00675602.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00675602.pdf)
 
 ---
 
@@ -8056,7 +8056,7 @@ Den 20. sep. 2013 Id. 05:14 slcrev Jeffrey Epstein leevacation@gmail.com>:
 
 when?
 
-[PDF](../pdf/kronprinsessen/EFTA01754118.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754118.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01754118.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754118.pdf)
 
 ---
 
@@ -8074,7 +8074,7 @@ Den 20. sep. 2013 Id. 05:14 slcrev Jeffrey Epstein leevacation@gmail.com>:
 
 when?
 
-[PDF](../pdf/kronprinsessen/EFTA02722613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02722613.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02722613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02722613.pdf)
 
 ---
 
@@ -8088,7 +8088,7 @@ when?
 
 when?
 
-[PDF](../pdf/kronprinsessen/EFTA00872765.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872765.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00872765.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872765.pdf)
 
 ---
 
@@ -8102,7 +8102,7 @@ when?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01960353.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01960353.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01960353.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01960353.pdf)
 
 ---
 
@@ -8186,7 +8186,7 @@ EFTA00383219
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383218.pdf)
+[PDF](../../pdf/mette/EFTA00383218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383218.pdf)
 
 ---
 
@@ -8206,7 +8206,7 @@ EFTA_R1_00768556
 
 EFTA02128164
 
-[PDF](../pdf/mette/EFTA02128164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128164.pdf)
+[PDF](../../pdf/mette/EFTA02128164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128164.pdf)
 
 ---
 
@@ -8242,7 +8242,7 @@ EFTA_R1_00767817
 
 EFTA02127699
 
-[PDF](../pdf/mette/EFTA02127699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127699.pdf)
+[PDF](../../pdf/mette/EFTA02127699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127699.pdf)
 
 ---
 
@@ -8258,7 +8258,7 @@ EFTA02127699
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383363.pdf)
+[PDF](../../pdf/mette/EFTA00383363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383363.pdf)
 
 ---
 
@@ -8274,7 +8274,7 @@ EFTA02127699
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00872651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872651.pdf)
+[PDF](../../pdf/mette/EFTA00872651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872651.pdf)
 
 ---
 
@@ -8350,7 +8350,7 @@ EFTA00639220
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00639219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639219.pdf)
+[PDF](../../pdf/mette/EFTA00639219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639219.pdf)
 
 ---
 
@@ -8436,7 +8436,7 @@ EFTA00383356
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383355.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383355.pdf)
+[PDF](../../pdf/mette/EFTA00383355.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383355.pdf)
 
 ---
 
@@ -8462,7 +8462,7 @@ tomorw
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383337.pdf)
+[PDF](../../pdf/mette/EFTA00383337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383337.pdf)
 
 ---
 
@@ -8478,7 +8478,7 @@ tomorw
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383331.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383331.pdf)
+[PDF](../../pdf/mette/EFTA00383331.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383331.pdf)
 
 ---
 
@@ -8528,7 +8528,7 @@ EHUD IS COMING IN THE MORNING...NEED TO HEAR BACK FROM JEM)
 
 EFTA00872622
 
-[PDF](../pdf/mette/EFTA00872621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872621.pdf)
+[PDF](../../pdf/mette/EFTA00872621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872621.pdf)
 
 ---
 
@@ -8576,7 +8576,7 @@ EHUD IS COMING IN THE MORNING...NEED TO HEAR BACK FROM JE/M
 
 EFTA00365277
 
-[PDF](../pdf/mette/EFTA00365276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365276.pdf)
+[PDF](../../pdf/mette/EFTA00365276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365276.pdf)
 
 ---
 
@@ -8666,7 +8666,7 @@ EFTA00383318
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383317.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383317.pdf)
+[PDF](../../pdf/mette/EFTA00383317.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383317.pdf)
 
 ---
 
@@ -8746,7 +8746,7 @@ EFTA00872614
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00872613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872613.pdf)
+[PDF](../../pdf/mette/EFTA00872613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00872613.pdf)
 
 ---
 
@@ -8772,7 +8772,7 @@ Assistant to Jeffrey Epstein
 
 EFTA00383303
 
-[PDF](../pdf/kronprinsessen/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
 
 ---
 
@@ -8798,7 +8798,7 @@ Assistant to Jeffrey Epstein
 
 EFTA00383303
 
-[PDF](../pdf/mette/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
+[PDF](../../pdf/mette/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
 
 ---
 
@@ -8824,7 +8824,7 @@ EFTA_R1_00768299
 
 EFTA02127999
 
-[PDF](../pdf/mette/EFTA02127999.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127999.pdf)
+[PDF](../../pdf/mette/EFTA02127999.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02127999.pdf)
 
 ---
 
@@ -8842,7 +8842,7 @@ EFTA_R1_01745429
 
 EFTA02574522
 
-[PDF](../pdf/mette/EFTA02574522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574522.pdf)
+[PDF](../../pdf/mette/EFTA02574522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574522.pdf)
 
 ---
 
@@ -8928,7 +8928,7 @@ EFTA00383502
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383501.pdf)
+[PDF](../../pdf/mette/EFTA00383501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383501.pdf)
 
 ---
 
@@ -8942,7 +8942,7 @@ EFTA00383502
 
 when are you free sat sun?
 
-[PDF](../pdf/kronprinsessen/EFTA00970792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970792.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00970792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970792.pdf)
 
 ---
 
@@ -9020,7 +9020,7 @@ EFTA00383426
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383425.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383425.pdf)
+[PDF](../../pdf/mette/EFTA00383425.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383425.pdf)
 
 ---
 
@@ -9034,7 +9034,7 @@ EFTA00383426
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02574776.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574776.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02574776.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574776.pdf)
 
 ---
 
@@ -9048,7 +9048,7 @@ EFTA00383426
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01958650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958650.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01958650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958650.pdf)
 
 ---
 
@@ -9126,7 +9126,7 @@ EFTA02128208
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02128207.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128207.pdf)
+[PDF](../../pdf/mette/EFTA02128207.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128207.pdf)
 
 ---
 
@@ -9204,7 +9204,7 @@ EFTA00383549
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00383548.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383548.pdf)
+[PDF](../../pdf/mette/EFTA00383548.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383548.pdf)
 
 ---
 
@@ -9226,7 +9226,7 @@ Subject: Re:
 
 To: Jeffrey Epstein I arrive 21 and stay to following thursday
 
-[PDF](../pdf/kronprinsessen/EFTA00970692.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970692.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00970692.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970692.pdf)
 
 ---
 
@@ -9248,7 +9248,7 @@ Subject: Re:
 
 To: Jeffrey Epstein I arrive 21 and stay to following thursday
 
-[PDF](../pdf/kronprinsessen/EFTA00383771.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383771.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00383771.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383771.pdf)
 
 ---
 
@@ -9262,7 +9262,7 @@ To: Jeffrey Epstein I arrive 21 and stay to following thursday
 
 I arrive 21 and stay to following thursday
 
-[PDF](../pdf/kronprinsessen/EFTA00706563.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00706563.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00706563.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00706563.pdf)
 
 ---
 
@@ -9276,7 +9276,7 @@ I arrive 21 and stay to following thursday
 
 Thx
 
-[PDF](../pdf/mette/EFTA02128203.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128203.pdf)
+[PDF](../../pdf/mette/EFTA02128203.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128203.pdf)
 
 ---
 
@@ -9304,7 +9304,7 @@ EFTA_R1_00769694
 
 EFTA02128709
 
-[PDF](../pdf/mette/EFTA02128709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128709.pdf)
+[PDF](../../pdf/mette/EFTA02128709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02128709.pdf)
 
 ---
 
@@ -9328,7 +9328,7 @@ To: Jeffrey Epstein lecvacation@gmail.com>
 
 I arrive 21 and stay to following thursday
 
-[PDF](../pdf/kronprinsessen/EFTA01954737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954737.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01954737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954737.pdf)
 
 ---
 
@@ -9346,7 +9346,7 @@ Den 13. sep. 2013 Id. 01:48 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 what days will you be in?
 
-[PDF](../pdf/kronprinsessen/EFTA01960689.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01960689.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01960689.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01960689.pdf)
 
 ---
 
@@ -9360,7 +9360,7 @@ what days will you be in?
 
 what days will you be in?
 
-[PDF](../pdf/kronprinsessen/EFTA00970673.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970673.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00970673.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970673.pdf)
 
 ---
 
@@ -9376,7 +9376,7 @@ Yay! Will see you then!
 
 Bisous
 
-[PDF](../pdf/kronprinsessen/EFTA00970490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970490.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00970490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00970490.pdf)
 
 ---
 
@@ -9392,7 +9392,7 @@ Yay! Will see you then!
 
 Bisous
 
-[PDF](../pdf/kronprinsessen/EFTA01957873.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01957873.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01957873.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01957873.pdf)
 
 ---
 
@@ -9406,7 +9406,7 @@ Bisous
 
 from the 20-27
 
-[PDF](../pdf/kronprinsessen/EFTA00969247.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00969247.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00969247.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00969247.pdf)
 
 ---
 
@@ -9420,7 +9420,7 @@ from the 20-27
 
 Yes!!!! Will you be there?
 
-[PDF](../pdf/kronprinsessen/EFTA00639245.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639245.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00639245.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639245.pdf)
 
 ---
 
@@ -9434,7 +9434,7 @@ Yes!!!! Will you be there?
 
 from the 20-27
 
-[PDF](../pdf/kronprinsessen/EFTA01958844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958844.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01958844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958844.pdf)
 
 ---
 
@@ -9452,7 +9452,7 @@ Den 11. sep. 2013 Id. 14:19 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 are you comb to ny?
 
-[PDF](../pdf/kronprinsessen/EFTA01958811.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958811.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01958811.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958811.pdf)
 
 ---
 
@@ -9466,7 +9466,7 @@ are you comb to ny?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01958754.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958754.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01958754.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958754.pdf)
 
 ---
 
@@ -9542,7 +9542,7 @@ EFTA01961943
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01961942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01961942.pdf)
+[PDF](../../pdf/mette/EFTA01961942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01961942.pdf)
 
 ---
 
@@ -9556,7 +9556,7 @@ EFTA01961943
 
 
 
-[PDF](../pdf/mette/EFTA01964195.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01964195.pdf)
+[PDF](../../pdf/mette/EFTA01964195.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01964195.pdf)
 
 ---
 
@@ -9574,7 +9574,7 @@ You &i
 
 And Boris ...
 
-[PDF](../pdf/kronprinsessen/EFTA00676672.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676672.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00676672.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676672.pdf)
 
 ---
 
@@ -9588,7 +9588,7 @@ And Boris ...
 
 boris
 
-[PDF](../pdf/kronprinsessen/EFTA00965746.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965746.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00965746.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965746.pdf)
 
 ---
 
@@ -9602,7 +9602,7 @@ boris
 
 boris
 
-[PDF](../pdf/kronprinsessen/EFTA01965116.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01965116.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01965116.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01965116.pdf)
 
 ---
 
@@ -9616,7 +9616,7 @@ boris
 
 thanks
 
-[PDF](../pdf/kronprinsessen/EFTA00965735.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965735.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00965735.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965735.pdf)
 
 ---
 
@@ -9630,7 +9630,7 @@ thanks
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01966612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966612.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01966612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966612.pdf)
 
 ---
 
@@ -9658,7 +9658,7 @@ public filing requirement for the foundation? Would a signed but undated letter 
 
 requirements. ?
 
-[PDF](../pdf/mette/EFTA00965285.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965285.pdf)
+[PDF](../../pdf/mette/EFTA00965285.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965285.pdf)
 
 ---
 
@@ -9672,7 +9672,7 @@ requirements. ?
 
 
 
-[PDF](../pdf/mette/EFTA01967734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967734.pdf)
+[PDF](../../pdf/mette/EFTA01967734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967734.pdf)
 
 ---
 
@@ -9692,7 +9692,7 @@ EFTA_R1_00782121
 
 EFTA02134594
 
-[PDF](../pdf/mette/EFTA02134594.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134594.pdf)
+[PDF](../../pdf/mette/EFTA02134594.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134594.pdf)
 
 ---
 
@@ -9706,7 +9706,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02571823.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571823.pdf)
+[PDF](../../pdf/mette/EFTA02571823.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571823.pdf)
 
 ---
 
@@ -9720,7 +9720,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674071.pdf)
+[PDF](../../pdf/mette/EFTA02674071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674071.pdf)
 
 ---
 
@@ -9734,7 +9734,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02571831.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571831.pdf)
+[PDF](../../pdf/mette/EFTA02571831.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571831.pdf)
 
 ---
 
@@ -9748,7 +9748,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02571833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571833.pdf)
+[PDF](../../pdf/mette/EFTA02571833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571833.pdf)
 
 ---
 
@@ -9762,7 +9762,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674065.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674065.pdf)
+[PDF](../../pdf/mette/EFTA02674065.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674065.pdf)
 
 ---
 
@@ -9776,7 +9776,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02571817.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571817.pdf)
+[PDF](../../pdf/mette/EFTA02571817.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571817.pdf)
 
 ---
 
@@ -9790,7 +9790,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674064.pdf)
+[PDF](../../pdf/mette/EFTA02674064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674064.pdf)
 
 ---
 
@@ -9804,7 +9804,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674057.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674057.pdf)
+[PDF](../../pdf/mette/EFTA02674057.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674057.pdf)
 
 ---
 
@@ -9818,7 +9818,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA00662512.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00662512.pdf)
+[PDF](../../pdf/mette/EFTA00662512.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00662512.pdf)
 
 ---
 
@@ -9832,7 +9832,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA01968227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968227.pdf)
+[PDF](../../pdf/mette/EFTA01968227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968227.pdf)
 
 ---
 
@@ -9846,7 +9846,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02721585.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721585.pdf)
+[PDF](../../pdf/mette/EFTA02721585.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721585.pdf)
 
 ---
 
@@ -9860,7 +9860,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674017.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674017.pdf)
+[PDF](../../pdf/mette/EFTA02674017.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674017.pdf)
 
 ---
 
@@ -9874,7 +9874,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA01793470.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01793470.pdf)
+[PDF](../../pdf/mette/EFTA01793470.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01793470.pdf)
 
 ---
 
@@ -9888,7 +9888,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674021.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674021.pdf)
+[PDF](../../pdf/mette/EFTA02674021.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674021.pdf)
 
 ---
 
@@ -9902,7 +9902,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674033.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674033.pdf)
+[PDF](../../pdf/mette/EFTA02674033.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674033.pdf)
 
 ---
 
@@ -9916,7 +9916,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674018.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674018.pdf)
+[PDF](../../pdf/mette/EFTA02674018.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674018.pdf)
 
 ---
 
@@ -9930,7 +9930,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674024.pdf)
+[PDF](../../pdf/mette/EFTA02674024.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674024.pdf)
 
 ---
 
@@ -9944,7 +9944,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02364482.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02364482.pdf)
+[PDF](../../pdf/mette/EFTA02364482.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02364482.pdf)
 
 ---
 
@@ -9958,7 +9958,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674031.pdf)
+[PDF](../../pdf/mette/EFTA02674031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674031.pdf)
 
 ---
 
@@ -9972,7 +9972,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02571656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571656.pdf)
+[PDF](../../pdf/mette/EFTA02571656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571656.pdf)
 
 ---
 
@@ -9986,7 +9986,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674039.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674039.pdf)
+[PDF](../../pdf/mette/EFTA02674039.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674039.pdf)
 
 ---
 
@@ -10000,7 +10000,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02364502.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02364502.pdf)
+[PDF](../../pdf/mette/EFTA02364502.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02364502.pdf)
 
 ---
 
@@ -10014,7 +10014,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA01793542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01793542.pdf)
+[PDF](../../pdf/mette/EFTA01793542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01793542.pdf)
 
 ---
 
@@ -10028,7 +10028,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674022.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674022.pdf)
+[PDF](../../pdf/mette/EFTA02674022.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674022.pdf)
 
 ---
 
@@ -10042,7 +10042,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674029.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674029.pdf)
+[PDF](../../pdf/mette/EFTA02674029.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674029.pdf)
 
 ---
 
@@ -10056,7 +10056,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674019.pdf)
+[PDF](../../pdf/mette/EFTA02674019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674019.pdf)
 
 ---
 
@@ -10070,7 +10070,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674016.pdf)
+[PDF](../../pdf/mette/EFTA02674016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674016.pdf)
 
 ---
 
@@ -10084,7 +10084,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674023.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674023.pdf)
+[PDF](../../pdf/mette/EFTA02674023.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674023.pdf)
 
 ---
 
@@ -10098,7 +10098,7 @@ EFTA02134594
 
 
 
-[PDF](../pdf/mette/EFTA02674015.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674015.pdf)
+[PDF](../../pdf/mette/EFTA02674015.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02674015.pdf)
 
 ---
 
@@ -10116,7 +10116,7 @@ EFTA_R1_01405861
 
 EFTA02386200
 
-[PDF](../pdf/kronprinsessen/EFTA02386200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02386200.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02386200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02386200.pdf)
 
 ---
 
@@ -10130,7 +10130,7 @@ EFTA02386200
 
 no
 
-[PDF](../pdf/mette/EFTA00388164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388164.pdf)
+[PDF](../../pdf/mette/EFTA00388164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388164.pdf)
 
 ---
 
@@ -10144,7 +10144,7 @@ no
 
 shoppping at530
 
-[PDF](../pdf/kronprinsessen/EFTA00964362.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964362.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00964362.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964362.pdf)
 
 ---
 
@@ -10168,7 +10168,7 @@ directly...
 
 EFTA00964361
 
-[PDF](../pdf/mette/EFTA00964361.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964361.pdf)
+[PDF](../../pdf/mette/EFTA00964361.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964361.pdf)
 
 ---
 
@@ -10202,7 +10202,7 @@ EFTA_R1_00444675
 
 EFTA01966459
 
-[PDF](../pdf/mette/EFTA01966459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966459.pdf)
+[PDF](../../pdf/mette/EFTA01966459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966459.pdf)
 
 ---
 
@@ -10216,7 +10216,7 @@ EFTA01966459
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01969020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01969020.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01969020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01969020.pdf)
 
 ---
 
@@ -10240,7 +10240,7 @@ EFTA_R1_00782484
 
 EFTA02134853
 
-[PDF](../pdf/kronprinsessen/EFTA02134853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134853.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02134853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134853.pdf)
 
 ---
 
@@ -10264,7 +10264,7 @@ EFTA_R1_00782484
 
 EFTA02134853
 
-[PDF](../pdf/mette/EFTA02134853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134853.pdf)
+[PDF](../../pdf/mette/EFTA02134853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02134853.pdf)
 
 ---
 
@@ -10282,7 +10282,7 @@ Dubin.. Might you be available?
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/kronprinsessen/EFTA02136056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136056.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02136056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136056.pdf)
 
 ---
 
@@ -10300,7 +10300,7 @@ Dubin.. Might you be available?
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/mette/EFTA02136056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136056.pdf)
+[PDF](../../pdf/mette/EFTA02136056.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136056.pdf)
 
 ---
 
@@ -10316,7 +10316,7 @@ Yes
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00963345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963345.pdf)
+[PDF](../../pdf/mette/EFTA00963345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963345.pdf)
 
 ---
 
@@ -10332,7 +10332,7 @@ Yes
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388545.pdf)
+[PDF](../../pdf/mette/EFTA00388545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388545.pdf)
 
 ---
 
@@ -10348,7 +10348,7 @@ I gave you her resume and was awaiting instruction. Would you like to try and se
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388540.pdf)
+[PDF](../../pdf/mette/EFTA00388540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388540.pdf)
 
 ---
 
@@ -10364,7 +10364,7 @@ I gave you her resume and was awaiting instruction. Would you like to try and se
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00646131.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646131.pdf)
+[PDF](../../pdf/mette/EFTA00646131.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646131.pdf)
 
 ---
 
@@ -10380,7 +10380,7 @@ what happend to barbros candidate
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00963340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963340.pdf)
+[PDF](../../pdf/mette/EFTA00963340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963340.pdf)
 
 ---
 
@@ -10396,7 +10396,7 @@ what happend to barbros candidate
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388536-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536-1.pdf)
+[PDF](../../pdf/mette/EFTA00388536-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536-1.pdf)
 
 ---
 
@@ -10412,7 +10412,7 @@ what happend to barbros candidate
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536.pdf)
+[PDF](../../pdf/mette/EFTA00388536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536.pdf)
 
 ---
 
@@ -10476,7 +10476,7 @@ EFTA00963336
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00963335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963335.pdf)
+[PDF](../../pdf/mette/EFTA00963335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963335.pdf)
 
 ---
 
@@ -10540,7 +10540,7 @@ EFTA00388529
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388528.pdf)
+[PDF](../../pdf/mette/EFTA00388528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388528.pdf)
 
 ---
 
@@ -10580,7 +10580,7 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00635488
 
-[PDF](../pdf/mette/EFTA00635488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00635488.pdf)
+[PDF](../../pdf/mette/EFTA00635488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00635488.pdf)
 
 ---
 
@@ -10622,7 +10622,7 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00388524
 
-[PDF](../pdf/mette/EFTA00388524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388524.pdf)
+[PDF](../../pdf/mette/EFTA00388524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388524.pdf)
 
 ---
 
@@ -10636,7 +10636,7 @@ EFTA00388524
 
 ok
 
-[PDF](../pdf/mette/EFTA00388488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388488.pdf)
+[PDF](../../pdf/mette/EFTA00388488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388488.pdf)
 
 ---
 
@@ -10650,7 +10650,7 @@ ok
 
 yes
 
-[PDF](../pdf/mette/EFTA00388486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388486.pdf)
+[PDF](../../pdf/mette/EFTA00388486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388486.pdf)
 
 ---
 
@@ -10684,7 +10684,7 @@ EFTA_R 1_00452457
 
 EFTA01970444
 
-[PDF](../pdf/mette/EFTA01970444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970444.pdf)
+[PDF](../../pdf/mette/EFTA01970444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970444.pdf)
 
 ---
 
@@ -10698,7 +10698,7 @@ EFTA01970444
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
 
 ---
 
@@ -10712,7 +10712,7 @@ ok perfect! thank you for letting me know
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+[PDF](../../pdf/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
 
 ---
 
@@ -10728,7 +10728,7 @@ Great
 
 Looking fwd to see you !
 
-[PDF](../pdf/kronprinsessen/EFTA00707385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00707385.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00707385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00707385.pdf)
 
 ---
 
@@ -10742,7 +10742,7 @@ Looking fwd to see you !
 
 of cousre
 
-[PDF](../pdf/kronprinsessen/EFTA00963816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963816.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00963816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963816.pdf)
 
 ---
 
@@ -10772,7 +10772,7 @@ Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
 
 EFTA00388387
 
-[PDF](../pdf/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
 
 ---
 
@@ -10802,7 +10802,7 @@ Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you!
 
 EFTA00388387
 
-[PDF](../pdf/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+[PDF](../../pdf/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
 
 ---
 
@@ -10820,7 +10820,7 @@ You'll have to be flexi on time though.
 
 And you might have to come shopping with me
 
-[PDF](../pdf/kronprinsessen/EFTA00707383.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00707383.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00707383.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00707383.pdf)
 
 ---
 
@@ -10834,7 +10834,7 @@ And you might have to come shopping with me
 
 
 
-[PDF](../pdf/mette/EFTA01967365.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967365.pdf)
+[PDF](../../pdf/mette/EFTA01967365.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967365.pdf)
 
 ---
 
@@ -10848,7 +10848,7 @@ And you might have to come shopping with me
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/kronprinsessen/EFTA02136378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136378.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02136378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136378.pdf)
 
 ---
 
@@ -10862,7 +10862,7 @@ ok perfect! thank you for letting me know
 
 ok perfect! thank you for letting me know
 
-[PDF](../pdf/mette/EFTA02136378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136378.pdf)
+[PDF](../../pdf/mette/EFTA02136378.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136378.pdf)
 
 ---
 
@@ -10876,7 +10876,7 @@ ok perfect! thank you for letting me know
 
 of cousre
 
-[PDF](../pdf/kronprinsessen/EFTA01966004.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966004.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01966004.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966004.pdf)
 
 ---
 
@@ -10892,7 +10892,7 @@ Thx. I will try. I'm emailing directly with Jeffrey.
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA02136000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136000.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02136000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136000.pdf)
 
 ---
 
@@ -10908,7 +10908,7 @@ Thx. I will try. I'm emailing directly with Jeffrey.
 
 Mm
 
-[PDF](../pdf/mette/EFTA02136000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136000.pdf)
+[PDF](../../pdf/mette/EFTA02136000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136000.pdf)
 
 ---
 
@@ -10936,7 +10936,7 @@ EFTA_R1_00784516
 
 EFTA02135941
 
-[PDF](../pdf/kronprinsessen/EFTA02135941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135941.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02135941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135941.pdf)
 
 ---
 
@@ -10964,7 +10964,7 @@ EFTA_R1_00784516
 
 EFTA02135941
 
-[PDF](../pdf/mette/EFTA02135941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135941.pdf)
+[PDF](../../pdf/mette/EFTA02135941.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135941.pdf)
 
 ---
 
@@ -10978,7 +10978,7 @@ EFTA02135941
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01965850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01965850.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01965850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01965850.pdf)
 
 ---
 
@@ -10992,7 +10992,7 @@ EFTA02135941
 
 no at harvard on fri then caribean
 
-[PDF](../pdf/kronprinsessen/EFTA00963796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963796.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00963796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963796.pdf)
 
 ---
 
@@ -11010,7 +11010,7 @@ On Wed, Jun 26, 2013 at 4:26 AM, H.K.H. Kronprinsessen ote:
 
 Arc you home over the weekend ? Sunday works best for me .
 
-[PDF](../pdf/kronprinsessen/EFTA01969059.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01969059.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01969059.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01969059.pdf)
 
 ---
 
@@ -11024,7 +11024,7 @@ Arc you home over the weekend ? Sunday works best for me .
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00963791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963791.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00963791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963791.pdf)
 
 ---
 
@@ -11038,7 +11038,7 @@ Arc you home over the weekend ? Sunday works best for me .
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02571076.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571076.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02571076.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571076.pdf)
 
 ---
 
@@ -11052,7 +11052,7 @@ Arc you home over the weekend ? Sunday works best for me .
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01968591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968591.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01968591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968591.pdf)
 
 ---
 
@@ -11110,7 +11110,7 @@ EFTA00963741
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00963740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963740.pdf)
+[PDF](../../pdf/mette/EFTA00963740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963740.pdf)
 
 ---
 
@@ -11174,7 +11174,7 @@ EFTA00388333
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388332.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388332.pdf)
+[PDF](../../pdf/mette/EFTA00388332.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388332.pdf)
 
 ---
 
@@ -11216,7 +11216,7 @@ EFTA00388325
 
 EFTA00388326
 
-[PDF](../pdf/mette/EFTA00388325.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388325.pdf)
+[PDF](../../pdf/mette/EFTA00388325.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388325.pdf)
 
 ---
 
@@ -11276,7 +11276,7 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00388631
 
-[PDF](../pdf/mette/EFTA00388630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388630.pdf)
+[PDF](../../pdf/mette/EFTA00388630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388630.pdf)
 
 ---
 
@@ -11294,7 +11294,7 @@ EFTA_R1_00783762
 
 EFTA02135523
 
-[PDF](../pdf/mette/EFTA02135523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135523.pdf)
+[PDF](../../pdf/mette/EFTA02135523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135523.pdf)
 
 ---
 
@@ -11308,7 +11308,7 @@ EFTA02135523
 
 
 
-[PDF](../pdf/mette/EFTA02135129.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135129.pdf)
+[PDF](../../pdf/mette/EFTA02135129.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135129.pdf)
 
 ---
 
@@ -11380,7 +11380,7 @@ EFTA00963629
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00963628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963628.pdf)
+[PDF](../../pdf/mette/EFTA00963628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963628.pdf)
 
 ---
 
@@ -11454,7 +11454,7 @@ EFTA00388578
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388577.pdf)
+[PDF](../../pdf/mette/EFTA00388577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388577.pdf)
 
 ---
 
@@ -11480,7 +11480,7 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00694771
 
-[PDF](../pdf/mette/EFTA00694771.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00694771.pdf)
+[PDF](../../pdf/mette/EFTA00694771.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00694771.pdf)
 
 ---
 
@@ -11506,7 +11506,7 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00388791
 
-[PDF](../pdf/mette/EFTA00388791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388791.pdf)
+[PDF](../../pdf/mette/EFTA00388791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388791.pdf)
 
 ---
 
@@ -11534,7 +11534,7 @@ EFTA_R1_01408885
 
 EFTA02387451
 
-[PDF](../pdf/mette/EFTA02387451.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02387451.pdf)
+[PDF](../../pdf/mette/EFTA02387451.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02387451.pdf)
 
 ---
 
@@ -11560,7 +11560,7 @@ EFTA_R1_00444963
 
 EFTA01966650
 
-[PDF](../pdf/mette/EFTA01966650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966650.pdf)
+[PDF](../../pdf/mette/EFTA01966650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966650.pdf)
 
 ---
 
@@ -11574,7 +11574,7 @@ EFTA01966650
 
 
 
-[PDF](../pdf/mette/EFTA01968103.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968103.pdf)
+[PDF](../../pdf/mette/EFTA01968103.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968103.pdf)
 
 ---
 
@@ -11590,7 +11590,7 @@ Good morning. To follow up, might some time this Thursday June 27th be good for 
 
 visit Jeffrey? Please let me know. Thanks,
 
-[PDF](../pdf/kronprinsessen/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
 
 ---
 
@@ -11606,7 +11606,7 @@ Good morning. To follow up, might some time this Thursday June 27th be good for 
 
 visit Jeffrey? Please let me know. Thanks,
 
-[PDF](../pdf/mette/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
+[PDF](../../pdf/mette/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
 
 ---
 
@@ -11624,7 +11624,7 @@ Den 22. juni 2013 Id. 16:05 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 I think she has TGE wrong Monday , ask her if this thurs works
 
-[PDF](../pdf/mette/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
+[PDF](../../pdf/mette/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
 
 ---
 
@@ -11642,7 +11642,7 @@ Den 22. juni 2013 Id. 16:05 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 I think she has TGE wrong Monday , ask her if this thurs works
 
-[PDF](../pdf/kpm/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
+[PDF](../../pdf/kpm/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
 
 ---
 
@@ -11656,7 +11656,7 @@ I think she has TGE wrong Monday , ask her if this thurs works
 
 I think she has TGE wrong Monday , ask her if this thurs works
 
-[PDF](../pdf/kronprinsessen/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
 
 ---
 
@@ -11670,7 +11670,7 @@ I think she has TGE wrong Monday , ask her if this thurs works
 
 I think she has TGE wrong Monday , ask her if this thurs works
 
-[PDF](../pdf/mette/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
+[PDF](../../pdf/mette/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
 
 ---
 
@@ -11684,7 +11684,7 @@ I think she has TGE wrong Monday , ask her if this thurs works
 
 Ok, thank you!
 
-[PDF](../pdf/kpm/EFTA00388691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388691.pdf)
+[PDF](../../pdf/kpm/EFTA00388691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388691.pdf)
 
 ---
 
@@ -11704,7 +11704,7 @@ EFTA_R1_01739265
 
 EFTA02570971
 
-[PDF](../pdf/mette/EFTA02570971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02570971.pdf)
+[PDF](../../pdf/mette/EFTA02570971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02570971.pdf)
 
 ---
 
@@ -11718,7 +11718,7 @@ EFTA02570971
 
 Ok, thank you!
 
-[PDF](../pdf/kpm/EFTA02135604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135604.pdf)
+[PDF](../../pdf/kpm/EFTA02135604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135604.pdf)
 
 ---
 
@@ -11736,7 +11736,7 @@ Im not sure yet will have to Get back to you.
 
 Mm
 
-[PDF](../pdf/kpm/EFTA02135572.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135572.pdf)
+[PDF](../../pdf/kpm/EFTA02135572.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135572.pdf)
 
 ---
 
@@ -11812,7 +11812,7 @@ EFTA00388682
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00388681.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388681.pdf)
+[PDF](../../pdf/mette/EFTA00388681.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388681.pdf)
 
 ---
 
@@ -11886,7 +11886,7 @@ EFTA00691749
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00691748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00691748.pdf)
+[PDF](../../pdf/mette/EFTA00691748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00691748.pdf)
 
 ---
 
@@ -11904,7 +11904,7 @@ his home, 9 East 71st Street between 5th and Madison...I know he would love to s
 
 Please let me know! thank you, Lesley
 
-[PDF](../pdf/kpm/EFTA00388663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388663.pdf)
+[PDF](../../pdf/kpm/EFTA00388663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388663.pdf)
 
 ---
 
@@ -11924,7 +11924,7 @@ love to see you...
 
 Please let me know! thank you, Lesley
 
-[PDF](../pdf/kpm/EFTA02135400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135400.pdf)
+[PDF](../../pdf/kpm/EFTA02135400.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135400.pdf)
 
 ---
 
@@ -11944,7 +11944,7 @@ EFTA_R1_00783315
 
 EFTA02135306
 
-[PDF](../pdf/mette/EFTA02135306.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135306.pdf)
+[PDF](../../pdf/mette/EFTA02135306.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135306.pdf)
 
 ---
 
@@ -11982,7 +11982,7 @@ EFTA_R1_00785424
 
 EFTA02136439
 
-[PDF](../pdf/mette/EFTA02136439.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136439.pdf)
+[PDF](../../pdf/mette/EFTA02136439.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136439.pdf)
 
 ---
 
@@ -11996,7 +11996,7 @@ EFTA02136439
 
 Would 1pm on Monday work for you!!??
 
-[PDF](../pdf/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
+[PDF](../../pdf/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
 
 ---
 
@@ -12010,7 +12010,7 @@ Would 1pm on Monday work for you!!??
 
 move princess to 1 and david to 3
 
-[PDF](../pdf/mette/EFTA00388871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388871.pdf)
+[PDF](../../pdf/mette/EFTA00388871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388871.pdf)
 
 ---
 
@@ -12044,7 +12044,7 @@ EARLIER WILL WORK)
 
 EFTA00364954
 
-[PDF](../pdf/mette/EFTA00364954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00364954.pdf)
+[PDF](../../pdf/mette/EFTA00364954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00364954.pdf)
 
 ---
 
@@ -12058,7 +12058,7 @@ EFTA00364954
 
 Could you come earlier? What would suit you? ... as I know Jeffrey would like to see you!
 
-[PDF](../pdf/kpm/EFTA00388857.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388857.pdf)
+[PDF](../../pdf/kpm/EFTA00388857.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388857.pdf)
 
 ---
 
@@ -12072,7 +12072,7 @@ Could you come earlier? What would suit you? ... as I know Jeffrey would like to
 
 Would 1pm on Monday work for you!!??
 
-[PDF](../pdf/kpm/EFTA02136517.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136517.pdf)
+[PDF](../../pdf/kpm/EFTA02136517.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136517.pdf)
 
 ---
 
@@ -12088,7 +12088,7 @@ Could you come earlier? What would suit you? ... as I know Jeffrey would like to
 
 see you!
 
-[PDF](../pdf/kpm/EFTA02136100.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136100.pdf)
+[PDF](../../pdf/kpm/EFTA02136100.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136100.pdf)
 
 ---
 
@@ -12124,7 +12124,7 @@ EFTA_R1_00784714
 
 EFTA02136063
 
-[PDF](../pdf/mette/EFTA02136063.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136063.pdf)
+[PDF](../../pdf/mette/EFTA02136063.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136063.pdf)
 
 ---
 
@@ -12144,7 +12144,7 @@ EFTA_R1_00784744
 
 EFTA02136079
 
-[PDF](../pdf/mette/EFTA02136079.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136079.pdf)
+[PDF](../../pdf/mette/EFTA02136079.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136079.pdf)
 
 ---
 
@@ -12158,7 +12158,7 @@ EFTA02136079
 
 Unfortunately this will be too late as I am returning to Norway around 4 Pm
 
-[PDF](../pdf/kpm/EFTA02136037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136037.pdf)
+[PDF](../../pdf/kpm/EFTA02136037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02136037.pdf)
 
 ---
 
@@ -12182,7 +12182,7 @@ en's profile
 
 photo
 
-[PDF](../pdf/kronprinsessen/EFTA00389062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00389062.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00389062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00389062.pdf)
 
 ---
 
@@ -12206,7 +12206,7 @@ en's profile
 
 photo
 
-[PDF](../pdf/kronprinsessen/EFTA00963205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963205.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00963205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963205.pdf)
 
 ---
 
@@ -12220,7 +12220,7 @@ photo
 
 thurs night ?
 
-[PDF](../pdf/kpm/EFTA00963551.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963551.pdf)
+[PDF](../../pdf/kpm/EFTA00963551.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963551.pdf)
 
 ---
 
@@ -12234,7 +12234,7 @@ thurs night ?
 
 I arrive nxt Thursday 27th staying until following mon afternoon.
 
-[PDF](../pdf/kpm/EFTA00963550.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963550.pdf)
+[PDF](../../pdf/kpm/EFTA00963550.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963550.pdf)
 
 ---
 
@@ -12248,7 +12248,7 @@ I arrive nxt Thursday 27th staying until following mon afternoon.
 
 what days ,
 
-[PDF](../pdf/kronprinsessen/EFTA00963544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963544.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00963544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963544.pdf)
 
 ---
 
@@ -12262,7 +12262,7 @@ what days ,
 
 than night ?
 
-[PDF](../pdf/kpm/EFTA01966833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966833.pdf)
+[PDF](../../pdf/kpm/EFTA01966833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966833.pdf)
 
 ---
 
@@ -12280,7 +12280,7 @@ Den 18. juni 2013 Id. 13:19 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 what days ,
 
-[PDF](../pdf/kpm/EFTA01966818.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966818.pdf)
+[PDF](../../pdf/kpm/EFTA01966818.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966818.pdf)
 
 ---
 
@@ -12294,7 +12294,7 @@ what days ,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01966593.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966593.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01966593.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966593.pdf)
 
 ---
 
@@ -12308,7 +12308,7 @@ what days ,
 
 24
 
-[PDF](../pdf/kpm/EFTA00873935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00873935.pdf)
+[PDF](../../pdf/kpm/EFTA00873935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00873935.pdf)
 
 ---
 
@@ -12322,7 +12322,7 @@ what days ,
 
 24
 
-[PDF](../pdf/kpm/EFTA01967440.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967440.pdf)
+[PDF](../../pdf/kpm/EFTA01967440.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967440.pdf)
 
 ---
 
@@ -12336,7 +12336,7 @@ what days ,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01971068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01971068.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01971068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01971068.pdf)
 
 ---
 
@@ -12376,7 +12376,7 @@ Subject:
 
 how is the surfing
 
-[PDF](../pdf/mette/EFTA00961619.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00961619.pdf)
+[PDF](../../pdf/mette/EFTA00961619.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00961619.pdf)
 
 ---
 
@@ -12408,7 +12408,7 @@ EFTA_R1_00448053
 
 EFTA01968388
 
-[PDF](../pdf/mette/EFTA01968388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968388.pdf)
+[PDF](../../pdf/mette/EFTA01968388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968388.pdf)
 
 ---
 
@@ -12466,7 +12466,7 @@ EFTA01758218
 
 how is the surfing
 
-[PDF](../pdf/mette/EFTA01758218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01758218.pdf)
+[PDF](../../pdf/mette/EFTA01758218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01758218.pdf)
 
 ---
 
@@ -12480,7 +12480,7 @@ how is the surfing
 
 sounds like a fun trip you are about to embark on
 
-[PDF](../pdf/kronprinsessen/EFTA00961224.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00961224.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00961224.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00961224.pdf)
 
 ---
 
@@ -12494,7 +12494,7 @@ sounds like a fun trip you are about to embark on
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01973167.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973167.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01973167.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973167.pdf)
 
 ---
 
@@ -12508,7 +12508,7 @@ sounds like a fun trip you are about to embark on
 
 yes
 
-[PDF](../pdf/kronprinsessen/EFTA01975423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975423.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975423.pdf)
 
 ---
 
@@ -12522,7 +12522,7 @@ yes
 
 Of june?
 
-[PDF](../pdf/kronprinsessen/EFTA01791080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01791080.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01791080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01791080.pdf)
 
 ---
 
@@ -12536,7 +12536,7 @@ Of june?
 
 they on the 27th, i might come to oslo on the 13
 
-[PDF](../pdf/kronprinsessen/EFTA01975257.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975257.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975257.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975257.pdf)
 
 ---
 
@@ -12554,7 +12554,7 @@ EFTA_R1_01736390
 
 EFTA02569193
 
-[PDF](../pdf/kronprinsessen/EFTA02569193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02569193.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02569193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02569193.pdf)
 
 ---
 
@@ -12568,7 +12568,7 @@ EFTA02569193
 
 Im in Houston !
 
-[PDF](../pdf/kronprinsessen/EFTA00642070.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642070.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00642070.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642070.pdf)
 
 ---
 
@@ -12582,7 +12582,7 @@ Im in Houston !
 
 lm in Houston !
 
-[PDF](../pdf/kronprinsessen/EFTA01761474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761474.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01761474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761474.pdf)
 
 ---
 
@@ -12596,7 +12596,7 @@ lm in Houston !
 
 you are missed on this side of the atlanitc
 
-[PDF](../pdf/kronprinsessen/EFTA00959983.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959983.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00959983.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959983.pdf)
 
 ---
 
@@ -12610,7 +12610,7 @@ you are missed on this side of the atlanitc
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01973350.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973350.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01973350.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973350.pdf)
 
 ---
 
@@ -12624,7 +12624,7 @@ you are missed on this side of the atlanitc
 
 Sounds lovely
 
-[PDF](../pdf/kronprinsessen/EFTA00657853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00657853.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00657853.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00657853.pdf)
 
 ---
 
@@ -12638,7 +12638,7 @@ Sounds lovely
 
 new mexico riding horses,
 
-[PDF](../pdf/kronprinsessen/EFTA00959804.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959804.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00959804.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959804.pdf)
 
 ---
 
@@ -12652,7 +12652,7 @@ new mexico riding horses,
 
 Where r u
 
-[PDF](../pdf/kronprinsessen/EFTA00657851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00657851.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00657851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00657851.pdf)
 
 ---
 
@@ -12666,7 +12666,7 @@ Where r u
 
 Sounds lovely
 
-[PDF](../pdf/kronprinsessen/EFTA01759955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01759955.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01759955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01759955.pdf)
 
 ---
 
@@ -12680,7 +12680,7 @@ Sounds lovely
 
 new mexico riding horses,
 
-[PDF](../pdf/kronprinsessen/EFTA01894275.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01894275.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01894275.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01894275.pdf)
 
 ---
 
@@ -12694,7 +12694,7 @@ new mexico riding horses,
 
 Where r u
 
-[PDF](../pdf/kronprinsessen/EFTA01759911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01759911.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01759911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01759911.pdf)
 
 ---
 
@@ -12708,7 +12708,7 @@ Where r u
 
 most places are
 
-[PDF](../pdf/kronprinsessen/EFTA00959782.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959782.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00959782.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00959782.pdf)
 
 ---
 
@@ -12722,7 +12722,7 @@ most places are
 
 most places are
 
-[PDF](../pdf/kronprinsessen/EFTA01895003.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895003.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01895003.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895003.pdf)
 
 ---
 
@@ -12736,7 +12736,7 @@ most places are
 
 Paris is gorgeous in spring
 
-[PDF](../pdf/kronprinsessen/EFTA00628096.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00628096.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00628096.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00628096.pdf)
 
 ---
 
@@ -12750,7 +12750,7 @@ Paris is gorgeous in spring
 
 Paris is gorgeous in spring
 
-[PDF](../pdf/kronprinsessen/EFTA01760234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01760234.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01760234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01760234.pdf)
 
 ---
 
@@ -12768,7 +12768,7 @@ Den 20. apr. 2013 Id. 17:23 slow Jeffrey Epstein :
 
 any plans for the states?
 
-[PDF](../pdf/kronprinsessen/EFTA02004867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02004867.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02004867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02004867.pdf)
 
 ---
 
@@ -12810,7 +12810,7 @@ shank anni, todd eric, ian Jacob, gates boris.. tanceredi vaiva.
 
 EFTA00642466
 
-[PDF](../pdf/mette/EFTA00642466.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642466.pdf)
+[PDF](../../pdf/mette/EFTA00642466.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642466.pdf)
 
 ---
 
@@ -12824,7 +12824,7 @@ EFTA00642466
 
 In Florence & Paris
 
-[PDF](../pdf/kronprinsessen/EFTA00673007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00673007.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00673007.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00673007.pdf)
 
 ---
 
@@ -12838,7 +12838,7 @@ In Florence & Paris
 
 any plans for the states?
 
-[PDF](../pdf/kronprinsessen/EFTA00958997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958997.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00958997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958997.pdf)
 
 ---
 
@@ -12856,7 +12856,7 @@ Den 20. apr. 2013 Id. 17:23 slow Jeffrey Epstein :
 
 any plans for the states?
 
-[PDF](../pdf/kronprinsessen/EFTA02006740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006740.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02006740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006740.pdf)
 
 ---
 
@@ -12874,7 +12874,7 @@ Den 20. apr. 2013 Id. 17:23 slow Jeffrey Epstein :
 
 any plans for the states?
 
-[PDF](../pdf/kronprinsessen/EFTA01893431.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01893431.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01893431.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01893431.pdf)
 
 ---
 
@@ -12888,7 +12888,7 @@ any plans for the states?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01895145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895145.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01895145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895145.pdf)
 
 ---
 
@@ -12904,7 +12904,7 @@ Better now thx
 
 Glad u r happy
 
-[PDF](../pdf/kronprinsessen/EFTA00874627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874627.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00874627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874627.pdf)
 
 ---
 
@@ -12918,7 +12918,7 @@ Glad u r happy
 
 you ok? im gnat
 
-[PDF](../pdf/kronprinsessen/EFTA00874621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874621.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00874621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874621.pdf)
 
 ---
 
@@ -12934,7 +12934,7 @@ lye been out of the loop for a bit
 
 How r u ?
 
-[PDF](../pdf/kronprinsessen/EFTA00874620.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874620.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00874620.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874620.pdf)
 
 ---
 
@@ -12948,7 +12948,7 @@ How r u ?
 
 why have i not heard from you, ?
 
-[PDF](../pdf/kronprinsessen/EFTA00874612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874612.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00874612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874612.pdf)
 
 ---
 
@@ -12964,7 +12964,7 @@ Better now thx
 
 Glad u r happy
 
-[PDF](../pdf/kronprinsessen/EFTA02031805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031805.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02031805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031805.pdf)
 
 ---
 
@@ -12980,7 +12980,7 @@ Better now thx
 
 Glad u r happy
 
-[PDF](../pdf/kronprinsessen/EFTA01895241.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895241.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01895241.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895241.pdf)
 
 ---
 
@@ -12994,7 +12994,7 @@ Glad u r happy
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01895181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895181.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01895181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895181.pdf)
 
 ---
 
@@ -13010,7 +13010,7 @@ lye been out of the loop for a bit
 
 How r u?
 
-[PDF](../pdf/kronprinsessen/EFTA01895172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895172.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01895172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895172.pdf)
 
 ---
 
@@ -13024,7 +13024,7 @@ How r u?
 
 call now?
 
-[PDF](../pdf/mette/EFTA00958153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958153.pdf)
+[PDF](../../pdf/mette/EFTA00958153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958153.pdf)
 
 ---
 
@@ -13048,7 +13048,7 @@ Subject:
 
 lets talk salina chow.? house. ? jawbone? bill schedule ? terje, ? mette? melz
 
-[PDF](../pdf/mette/EFTA00958152.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958152.pdf)
+[PDF](../../pdf/mette/EFTA00958152.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958152.pdf)
 
 ---
 
@@ -13062,7 +13062,7 @@ lets talk salina chow.? house. ? jawbone? bill schedule ? terje, ? mette? melz
 
 lets talk salina chow.? house. ? jawbone? bill schedule ? tede, ? mette? melz
 
-[PDF](../pdf/mette/EFTA00958149.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958149.pdf)
+[PDF](../../pdf/mette/EFTA00958149.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958149.pdf)
 
 ---
 
@@ -13076,7 +13076,7 @@ lets talk salina chow.? house. ? jawbone? bill schedule ? tede, ? mette? melz
 
 cal tow?
 
-[PDF](../pdf/mette/EFTA01900538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900538.pdf)
+[PDF](../../pdf/mette/EFTA01900538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900538.pdf)
 
 ---
 
@@ -13100,7 +13100,7 @@ Subject:
 
 lets talk salina chow.? house. ? jawbone? bill schedule ? tcrje, ? mettc? melz
 
-[PDF](../pdf/mette/EFTA01900452.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900452.pdf)
+[PDF](../../pdf/mette/EFTA01900452.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900452.pdf)
 
 ---
 
@@ -13116,7 +13116,7 @@ No nonvay Im skiing
 
 S0000 beautiful
 
-[PDF](../pdf/kronprinsessen/EFTA00652549.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00652549.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00652549.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00652549.pdf)
 
 ---
 
@@ -13130,7 +13130,7 @@ S0000 beautiful
 
 paris'?
 
-[PDF](../pdf/kronprinsessen/EFTA00957701.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00957701.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00957701.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00957701.pdf)
 
 ---
 
@@ -13144,7 +13144,7 @@ paris'?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01902316.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902316.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01902316.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902316.pdf)
 
 ---
 
@@ -13160,7 +13160,7 @@ Im glad
 
 He sounds much better
 
-[PDF](../pdf/kronprinsessen/EFTA00680354.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680354.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00680354.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680354.pdf)
 
 ---
 
@@ -13174,7 +13174,7 @@ He sounds much better
 
 boris will be able to see again in about three monhts. its going very well
 
-[PDF](../pdf/kronprinsessen/EFTA00956134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956134.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956134.pdf)
 
 ---
 
@@ -13188,7 +13188,7 @@ boris will be able to see again in about three monhts. its going very well
 
 yes him
 
-[PDF](../pdf/kronprinsessen/EFTA00956132.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956132.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956132.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956132.pdf)
 
 ---
 
@@ -13208,7 +13208,7 @@ ill do some research
 
 mm
 
-[PDF](../pdf/kronprinsessen/EFTA00680332.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680332.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00680332.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00680332.pdf)
 
 ---
 
@@ -13224,7 +13224,7 @@ Im glad
 
 He sounds much better
 
-[PDF](../pdf/kronprinsessen/EFTA01899046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01899046.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01899046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01899046.pdf)
 
 ---
 
@@ -13238,7 +13238,7 @@ He sounds much better
 
 yes him
 
-[PDF](../pdf/kronprinsessen/EFTA01898950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898950.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01898950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898950.pdf)
 
 ---
 
@@ -13270,7 +13270,7 @@ On Sat, Mar 16, 2013 at 5:52 AM, H.K.H. ICronprinsessen ote:
 
 Hmmm cant remember. For what purpose ?
 
-[PDF](../pdf/kronprinsessen/EFTA01898886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898886.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01898886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898886.pdf)
 
 ---
 
@@ -13284,7 +13284,7 @@ Hmmm cant remember. For what purpose ?
 
 we talked about lora peano being old, and pinto being dead, you thought there was a young english guy.?
 
-[PDF](../pdf/kronprinsessen/EFTA00956125.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956125.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956125.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956125.pdf)
 
 ---
 
@@ -13300,7 +13300,7 @@ we talked about bra peano being old, and pinto being dead, you thought there was
 
 english guy.?
 
-[PDF](../pdf/kronprinsessen/EFTA01898406.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898406.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01898406.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898406.pdf)
 
 ---
 
@@ -13314,7 +13314,7 @@ english guy.?
 
 Hmmm cant remember. For what purpose ?
 
-[PDF](../pdf/kronprinsessen/EFTA00692342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692342.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692342.pdf)
 
 ---
 
@@ -13332,7 +13332,7 @@ Den 16. mars 2013 Id. 02:31 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 who was the english designet that you thought was energentic , but sophisticated?
 
-[PDF](../pdf/kronprinsessen/EFTA01898181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898181.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01898181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01898181.pdf)
 
 ---
 
@@ -13346,7 +13346,7 @@ who was the english designet that you thought was energentic , but sophisticated
 
 who was the english designet that you thought was energentic , but sophisticated?
 
-[PDF](../pdf/kronprinsessen/EFTA00956099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956099.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956099.pdf)
 
 ---
 
@@ -13360,7 +13360,7 @@ who was the english designet that you thought was energentic , but sophisticated
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01902493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902493.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01902493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902493.pdf)
 
 ---
 
@@ -13374,7 +13374,7 @@ who was the english designet that you thought was energentic , but sophisticated
 
 caribean then ny then paris on the 22-31
 
-[PDF](../pdf/kronprinsessen/EFTA00956739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956739.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956739.pdf)
 
 ---
 
@@ -13388,7 +13388,7 @@ caribean then ny then paris on the 22-31
 
 caribean then ny then paris on the 22-31
 
-[PDF](../pdf/kronprinsessen/EFTA01902474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902474.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01902474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902474.pdf)
 
 ---
 
@@ -13404,7 +13404,7 @@ Im Stuck in nonvay for a while..,
 
 How about you ?
 
-[PDF](../pdf/kronprinsessen/EFTA00715953.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00715953.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00715953.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00715953.pdf)
 
 ---
 
@@ -13420,7 +13420,7 @@ Im Stuck in norway for a while..,
 
 How about you ?
 
-[PDF](../pdf/kronprinsessen/EFTA01901936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901936.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01901936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901936.pdf)
 
 ---
 
@@ -13434,7 +13434,7 @@ How about you ?
 
 Where and when?
 
-[PDF](../pdf/kronprinsessen/EFTA00956724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956724.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00956724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00956724.pdf)
 
 ---
 
@@ -13448,7 +13448,7 @@ Where and when?
 
 will you be in paris 22-30? goig to verailles 27th,
 
-[PDF](../pdf/kronprinsessen/EFTA00955971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955971.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00955971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955971.pdf)
 
 ---
 
@@ -13462,7 +13462,7 @@ will you be in paris 22-30? goig to verailles 27th,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01902832.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902832.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01902832.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902832.pdf)
 
 ---
 
@@ -13478,7 +13478,7 @@ Have fun?
 
 In Paris ?
 
-[PDF](../pdf/kronprinsessen/EFTA00652737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00652737.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00652737.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00652737.pdf)
 
 ---
 
@@ -13492,7 +13492,7 @@ In Paris ?
 
 did you have fun
 
-[PDF](../pdf/kronprinsessen/EFTA00955473.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955473.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00955473.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955473.pdf)
 
 ---
 
@@ -13506,7 +13506,7 @@ did you have fun
 
 im back in ny , until friday
 
-[PDF](../pdf/kronprinsessen/EFTA00875277.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875277.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875277.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875277.pdf)
 
 ---
 
@@ -13520,7 +13520,7 @@ im back in ny , until friday
 
 Im glad you saw him.
 
-[PDF](../pdf/kronprinsessen/EFTA00875276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875276.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875276.pdf)
 
 ---
 
@@ -13534,7 +13534,7 @@ Im glad you saw him.
 
 im back in ny , until friday
 
-[PDF](../pdf/kronprinsessen/EFTA01901573.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901573.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01901573.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901573.pdf)
 
 ---
 
@@ -13548,7 +13548,7 @@ im back in ny , until friday
 
 Im glad you saw him.
 
-[PDF](../pdf/kronprinsessen/EFTA01901545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901545.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01901545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01901545.pdf)
 
 ---
 
@@ -13562,7 +13562,7 @@ Im glad you saw him.
 
 boris was much bettter than i expected, you were missed but not forgoteen
 
-[PDF](../pdf/kronprinsessen/EFTA00875204.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875204.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875204.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875204.pdf)
 
 ---
 
@@ -13576,7 +13576,7 @@ boris was much bettter than i expected, you were missed but not forgoteen
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01903909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903909.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01903909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903909.pdf)
 
 ---
 
@@ -13590,7 +13590,7 @@ boris was much bettter than i expected, you were missed but not forgoteen
 
 yes„ march with woody alien,
 
-[PDF](../pdf/kronprinsessen/EFTA00954779.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954779.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00954779.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954779.pdf)
 
 ---
 
@@ -13604,7 +13604,7 @@ yes„ march with woody alien,
 
 yes„ march with woody alien,
 
-[PDF](../pdf/kronprinsessen/EFTA01904236.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904236.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904236.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904236.pdf)
 
 ---
 
@@ -13618,7 +13618,7 @@ yes„ march with woody alien,
 
 Nxt month ?
 
-[PDF](../pdf/kronprinsessen/EFTA00954777.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954777.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00954777.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954777.pdf)
 
 ---
 
@@ -13632,7 +13632,7 @@ Nxt month ?
 
 im in paris 22-31
 
-[PDF](../pdf/kronprinsessen/EFTA00954767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954767.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00954767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954767.pdf)
 
 ---
 
@@ -13646,7 +13646,7 @@ im in paris 22-31
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01903291.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903291.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01903291.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903291.pdf)
 
 ---
 
@@ -13666,7 +13666,7 @@ Feels amazing ..
 
 In Paris meditating
 
-[PDF](../pdf/kronprinsessen/EFTA00954724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954724.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00954724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954724.pdf)
 
 ---
 
@@ -13680,7 +13680,7 @@ In Paris meditating
 
 are you coming?
 
-[PDF](../pdf/kronprinsessen/EFTA00955240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955240.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00955240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00955240.pdf)
 
 ---
 
@@ -13694,7 +13694,7 @@ are you coming?
 
 im going to my ranch sat the 23 long beach the 25, you can fly the entire trip if you Ike
 
-[PDF](../pdf/kronprinsessen/EFTA00954490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954490.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00954490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954490.pdf)
 
 ---
 
@@ -13708,7 +13708,7 @@ im going to my ranch sat the 23 long beach the 25, you can fly the entire trip i
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01907276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907276.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01907276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907276.pdf)
 
 ---
 
@@ -13722,7 +13722,7 @@ im going to my ranch sat the 23 long beach the 25, you can fly the entire trip i
 
 ok
 
-[PDF](../pdf/mette/EFTA00953985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953985.pdf)
+[PDF](../../pdf/mette/EFTA00953985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953985.pdf)
 
 ---
 
@@ -13750,7 +13750,7 @@ arrange a charter home. 3, bill dinner 28 , march 1 others. 4 mette? do you want
 
 ny? island trip with
 
-[PDF](../pdf/mette/EFTA00692700.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692700.pdf)
+[PDF](../../pdf/mette/EFTA00692700.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692700.pdf)
 
 ---
 
@@ -13768,7 +13768,7 @@ arrange a charter home, 3, bill dinner 28 , march 1 others. 4 mette? do you want
 
 ny? island trip with meilinda?
 
-[PDF](../pdf/mette/EFTA00953982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953982.pdf)
+[PDF](../../pdf/mette/EFTA00953982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953982.pdf)
 
 ---
 
@@ -13782,7 +13782,7 @@ ny? island trip with meilinda?
 
 ok
 
-[PDF](../pdf/mette/EFTA01907090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907090.pdf)
+[PDF](../../pdf/mette/EFTA01907090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907090.pdf)
 
 ---
 
@@ -13810,7 +13810,7 @@ tcd. 2. i will arrange a charter home, 3, bill dinner 28 , march! others. 4 mett
 
 me to bring anyone else from ny? island trip with meilinda?
 
-[PDF](../pdf/mette/EFTA01907018.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907018.pdf)
+[PDF](../../pdf/mette/EFTA01907018.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907018.pdf)
 
 ---
 
@@ -13824,7 +13824,7 @@ me to bring anyone else from ny? island trip with meilinda?
 
 
 
-[PDF](../pdf/mette/EFTA01906525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01906525.pdf)
+[PDF](../../pdf/mette/EFTA01906525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01906525.pdf)
 
 ---
 
@@ -13838,7 +13838,7 @@ me to bring anyone else from ny? island trip with meilinda?
 
 tried to call
 
-[PDF](../pdf/kronprinsessen/EFTA00875583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875583.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875583.pdf)
 
 ---
 
@@ -13852,7 +13852,7 @@ tried to call
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01904240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904240.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904240.pdf)
 
 ---
 
@@ -13866,7 +13866,7 @@ tried to call
 
 it got too late talk tomonv
 
-[PDF](../pdf/kronprinsessen/EFTA00875523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875523.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875523.pdf)
 
 ---
 
@@ -13880,7 +13880,7 @@ it got too late talk tomonv
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01903768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903768.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01903768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903768.pdf)
 
 ---
 
@@ -13894,7 +13894,7 @@ it got too late talk tomonv
 
 ok
 
-[PDF](../pdf/kronprinsessen/EFTA00875479.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875479.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875479.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875479.pdf)
 
 ---
 
@@ -13912,7 +13912,7 @@ Call me in two hours
 
 Love
 
-[PDF](../pdf/kronprinsessen/EFTA00638984.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00638984.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00638984.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00638984.pdf)
 
 ---
 
@@ -13926,7 +13926,7 @@ Love
 
 ok
 
-[PDF](../pdf/kronprinsessen/EFTA01904714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904714.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904714.pdf)
 
 ---
 
@@ -13946,7 +13946,7 @@ If boris goes to TED i think I'll stay home
 
 U ???
 
-[PDF](../pdf/kronprinsessen/EFTA00668388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668388.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668388.pdf)
 
 ---
 
@@ -13964,7 +13964,7 @@ Call me in two hours
 
 Love
 
-[PDF](../pdf/kronprinsessen/EFTA01904503.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904503.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904503.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904503.pdf)
 
 ---
 
@@ -13978,7 +13978,7 @@ Love
 
 can i call you
 
-[PDF](../pdf/kronprinsessen/EFTA01904340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904340.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904340.pdf)
 
 ---
 
@@ -13992,7 +13992,7 @@ can i call you
 
 have you finalized plans for travle?
 
-[PDF](../pdf/kronprinsessen/EFTA00875351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875351.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875351.pdf)
 
 ---
 
@@ -14006,7 +14006,7 @@ have you finalized plans for travle?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01904907.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904907.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904907.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904907.pdf)
 
 ---
 
@@ -14020,7 +14020,7 @@ have you finalized plans for travle?
 
 send me the photos she wants
 
-[PDF](../pdf/mette/EFTA00953149.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953149.pdf)
+[PDF](../../pdf/mette/EFTA00953149.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953149.pdf)
 
 ---
 
@@ -14070,7 +14070,7 @@ That's the report for the past 24 hours from the Land of Boris.
 
 EFTA00953146
 
-[PDF](../pdf/mette/EFTA00953146.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953146.pdf)
+[PDF](../../pdf/mette/EFTA00953146.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953146.pdf)
 
 ---
 
@@ -14122,7 +14122,7 @@ EFTA_R1_00337768
 
 EFTA01905382
 
-[PDF](../pdf/mette/EFTA01905382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01905382.pdf)
+[PDF](../../pdf/mette/EFTA01905382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01905382.pdf)
 
 ---
 
@@ -14176,7 +14176,7 @@ EFTA_R1_01731408
 
 EFTA02566322
 
-[PDF](../pdf/mette/EFTA02566322.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02566322.pdf)
+[PDF](../../pdf/mette/EFTA02566322.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02566322.pdf)
 
 ---
 
@@ -14190,7 +14190,7 @@ EFTA02566322
 
 
 
-[PDF](../pdf/mette/EFTA00670886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00670886.pdf)
+[PDF](../../pdf/mette/EFTA00670886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00670886.pdf)
 
 ---
 
@@ -14204,7 +14204,7 @@ EFTA02566322
 
 Does below mean ok?? It says OI.
 
-[PDF](../pdf/mette/EFTA02001784.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001784.pdf)
+[PDF](../../pdf/mette/EFTA02001784.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001784.pdf)
 
 ---
 
@@ -14218,7 +14218,7 @@ Does below mean ok?? It says OI.
 
 
 
-[PDF](../pdf/mette/EFTA02371509.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371509.pdf)
+[PDF](../../pdf/mette/EFTA02371509.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371509.pdf)
 
 ---
 
@@ -14232,7 +14232,7 @@ Does below mean ok?? It says OI.
 
 
 
-[PDF](../pdf/mette/EFTA02566294.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02566294.pdf)
+[PDF](../../pdf/mette/EFTA02566294.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02566294.pdf)
 
 ---
 
@@ -14248,7 +14248,7 @@ https://www.youtube.com/watch?v=TRMQ4Bu0EQ
 
 MM.
 
-[PDF](../pdf/kronprinsessen/EFTA01903743.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903743.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01903743.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903743.pdf)
 
 ---
 
@@ -14268,7 +14268,7 @@ My daughter in bed with me heard me laughing & said has someone sent you a funny
 
 the porch?
 
-[PDF](../pdf/kronprinsessen/EFTA00692881.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692881.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692881.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692881.pdf)
 
 ---
 
@@ -14284,7 +14284,7 @@ yes, i know, if you are blind and the only person who can hear and talk back 24 
 
 jettison
 
-[PDF](../pdf/kronprinsessen/EFTA00953401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00953401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953401.pdf)
 
 ---
 
@@ -14310,7 +14310,7 @@ yes, i know, if you are blind and the only person who can hear and talk back 24
 
 hrs a day, now is not the time to jettison
 
-[PDF](../pdf/kronprinsessen/EFTA01904970.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904970.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904970.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904970.pdf)
 
 ---
 
@@ -14326,7 +14326,7 @@ yes, i know, if you are blind and the only person who can hear and talk back 24 
 
 not the time to jettison
 
-[PDF](../pdf/kronprinsessen/EFTA01904915.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904915.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904915.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904915.pdf)
 
 ---
 
@@ -14344,7 +14344,7 @@ It was so lovely to hear his voice.. He seemed low but not as bad as when I saw 
 
 U well?
 
-[PDF](../pdf/kronprinsessen/EFTA01904811.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904811.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904811.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904811.pdf)
 
 ---
 
@@ -14358,7 +14358,7 @@ U well?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01904741.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904741.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01904741.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904741.pdf)
 
 ---
 
@@ -14376,7 +14376,7 @@ He is...
 
 Im glad you spoke.. Ive been thinking about him all day..
 
-[PDF](../pdf/kronprinsessen/EFTA00953278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953278.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00953278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953278.pdf)
 
 ---
 
@@ -14392,7 +14392,7 @@ spoke to boris , it will be ok, he was overwhlemed both with his current circume
 
 friend you were
 
-[PDF](../pdf/kronprinsessen/EFTA00953274.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953274.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00953274.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953274.pdf)
 
 ---
 
@@ -14418,7 +14418,7 @@ circumestances and what a good friend you were
 
 tttttttttttttttttttttttt
 
-[PDF](../pdf/kronprinsessen/EFTA01907713.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907713.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01907713.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907713.pdf)
 
 ---
 
@@ -14432,7 +14432,7 @@ tttttttttttttttttttttttt
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01907465.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907465.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01907465.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907465.pdf)
 
 ---
 
@@ -14446,7 +14446,7 @@ tttttttttttttttttttttttt
 
 Call me
 
-[PDF](../pdf/kronprinsessen/EFTA00952801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952801.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952801.pdf)
 
 ---
 
@@ -14460,7 +14460,7 @@ Call me
 
 Call me
 
-[PDF](../pdf/kronprinsessen/EFTA01908394.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908394.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908394.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908394.pdf)
 
 ---
 
@@ -14474,7 +14474,7 @@ Call me
 
 Call me
 
-[PDF](../pdf/kronprinsessen/EFTA02006756.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006756.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02006756.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006756.pdf)
 
 ---
 
@@ -14488,7 +14488,7 @@ Call me
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01908222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908222.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908222.pdf)
 
 ---
 
@@ -14502,7 +14502,7 @@ Call me
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910187.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910187.pdf)
 
 ---
 
@@ -14516,7 +14516,7 @@ Call me
 
 Do you know how he is after surgery??
 
-[PDF](../pdf/kronprinsessen/EFTA00699835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699835.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699835.pdf)
 
 ---
 
@@ -14534,7 +14534,7 @@ Den 26. jan. 2013 Id. 14:47 skrev Jeffrey Epstein :
 
 i understand you were an amzing friend to boris in a time of need. thanksk
 
-[PDF](../pdf/kronprinsessen/EFTA01909950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909950.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909950.pdf)
 
 ---
 
@@ -14548,7 +14548,7 @@ i understand you were an amzing friend to boris in a time of need. thanksk
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01907499.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907499.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01907499.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907499.pdf)
 
 ---
 
@@ -14566,7 +14566,7 @@ Den 16. jan. 2013 Id. 19:32 slcrev Jeffrey Epstein :
 
 well?
 
-[PDF](../pdf/kronprinsessen/EFTA01910583-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910583-1.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910583-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910583-1.pdf)
 
 ---
 
@@ -14584,7 +14584,7 @@ Den 16. jan. 2013 Id. 19:32 slcrev Jeffrey Epstein :
 
 well?
 
-[PDF](../pdf/kronprinsessen/EFTA01910583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910583.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910583.pdf)
 
 ---
 
@@ -14598,7 +14598,7 @@ well?
 
 Yes u?
 
-[PDF](../pdf/kronprinsessen/EFTA00952562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952562.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952562.pdf)
 
 ---
 
@@ -14612,7 +14612,7 @@ Yes u?
 
 well?
 
-[PDF](../pdf/kronprinsessen/EFTA00952555.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952555.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952555.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952555.pdf)
 
 ---
 
@@ -14626,7 +14626,7 @@ well?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01909370.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909370.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909370.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909370.pdf)
 
 ---
 
@@ -14656,7 +14656,7 @@ Now Marius birthday is starting!!
 
 So have to shoot !
 
-[PDF](../pdf/kronprinsessen/EFTA00875714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875714.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875714.pdf)
 
 ---
 
@@ -14670,7 +14670,7 @@ So have to shoot !
 
 good flight? birthday marius?
 
-[PDF](../pdf/kronprinsessen/EFTA00875709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875709.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875709.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875709.pdf)
 
 ---
 
@@ -14684,7 +14684,7 @@ good flight? birthday marius?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01909096.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909096.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909096.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909096.pdf)
 
 ---
 
@@ -14698,7 +14698,7 @@ good flight? birthday marius?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01908790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908790.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908790.pdf)
 
 ---
 
@@ -14712,7 +14712,7 @@ good flight? birthday marius?
 
 My dear I am sure you are right..
 
-[PDF](../pdf/kronprinsessen/EFTA00668380.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668380.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668380.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668380.pdf)
 
 ---
 
@@ -14728,7 +14728,7 @@ im aware of this study„ it disapppeared two weeks later. if one listens to mus
 
 activated, ,just like a muscle„ i will send you the follow up
 
-[PDF](../pdf/kronprinsessen/EFTA00875651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875651.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875651.pdf)
 
 ---
 
@@ -14742,7 +14742,7 @@ activated, ,just like a muscle„ i will send you the follow up
 
 My dear I am sure you are right..
 
-[PDF](../pdf/kronprinsessen/EFTA01908639.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908639.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908639.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908639.pdf)
 
 ---
 
@@ -14758,7 +14758,7 @@ im aware of this study„ it disapppeared two weeks later. if one listens to mus
 
 area is activated, just like a muscle„ i will send you the follow up
 
-[PDF](../pdf/kronprinsessen/EFTA01908578.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908578.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908578.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908578.pdf)
 
 ---
 
@@ -14772,7 +14772,7 @@ area is activated, just like a muscle„ i will send you the follow up
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01908546.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908546.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908546.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908546.pdf)
 
 ---
 
@@ -14786,7 +14786,7 @@ area is activated, just like a muscle„ i will send you the follow up
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02521159.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02521159.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02521159.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02521159.pdf)
 
 ---
 
@@ -14800,7 +14800,7 @@ area is activated, just like a muscle„ i will send you the follow up
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02706710.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706710.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02706710.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706710.pdf)
 
 ---
 
@@ -14814,7 +14814,7 @@ area is activated, just like a muscle„ i will send you the follow up
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02369087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02369087.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02369087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02369087.pdf)
 
 ---
 
@@ -14832,7 +14832,7 @@ EFTA_R1_01658228
 
 EFTA02521147
 
-[PDF](../pdf/kronprinsessen/EFTA02521147.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02521147.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02521147.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02521147.pdf)
 
 ---
 
@@ -14848,7 +14848,7 @@ Tried to call both of you.
 
 My problem got worse. Just changed flight back to Seattle. I will not be coming to palm beach. Sorry
 
-[PDF](../pdf/kronprinsessen/EFTA01912574.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912574.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912574.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912574.pdf)
 
 ---
 
@@ -14868,7 +14868,7 @@ EFTA_R1_01368240
 
 EFTA02368863
 
-[PDF](../pdf/mette/EFTA02368863.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02368863.pdf)
+[PDF](../../pdf/mette/EFTA02368863.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02368863.pdf)
 
 ---
 
@@ -14888,7 +14888,7 @@ EFTA_R1_01729180
 
 EFTA02565067
 
-[PDF](../pdf/mette/EFTA02565067.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02565067.pdf)
+[PDF](../../pdf/mette/EFTA02565067.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02565067.pdf)
 
 ---
 
@@ -14970,7 +14970,7 @@ EFTA00397931
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00397930.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00397930.pdf)
+[PDF](../../pdf/mette/EFTA00397930.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00397930.pdf)
 
 ---
 
@@ -14984,7 +14984,7 @@ EFTA00397931
 
 mette will want peace and quiet , so lets leave her space,
 
-[PDF](../pdf/mette/EFTA00951945.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951945.pdf)
+[PDF](../../pdf/mette/EFTA00951945.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951945.pdf)
 
 ---
 
@@ -14998,7 +14998,7 @@ mette will want peace and quiet , so lets leave her space,
 
 Yes now i am
 
-[PDF](../pdf/kronprinsessen/EFTA00951940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951940.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951940.pdf)
 
 ---
 
@@ -15018,7 +15018,7 @@ EFTA_R1_00811061
 
 EFTA02150206
 
-[PDF](../pdf/mette/EFTA02150206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150206.pdf)
+[PDF](../../pdf/mette/EFTA02150206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150206.pdf)
 
 ---
 
@@ -15032,7 +15032,7 @@ EFTA02150206
 
 
 
-[PDF](../pdf/mette/EFTA01907759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907759.pdf)
+[PDF](../../pdf/mette/EFTA01907759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907759.pdf)
 
 ---
 
@@ -15046,7 +15046,7 @@ EFTA02150206
 
 
 
-[PDF](../pdf/mette/EFTA02564708.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564708.pdf)
+[PDF](../../pdf/mette/EFTA02564708.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564708.pdf)
 
 ---
 
@@ -15060,7 +15060,7 @@ EFTA02150206
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913458.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913458.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913458.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913458.pdf)
 
 ---
 
@@ -15096,7 +15096,7 @@ EFTA_R1_00814143
 
 EFTA02151115
 
-[PDF](../pdf/mette/EFTA02151115.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151115.pdf)
+[PDF](../../pdf/mette/EFTA02151115.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151115.pdf)
 
 ---
 
@@ -15112,7 +15112,7 @@ boris, stay in bed, forget board meeting, catch up, rest, don't fly, take it eas
 
 not there„ nothing that important,
 
-[PDF](../pdf/mette/EFTA01912208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912208.pdf)
+[PDF](../../pdf/mette/EFTA01912208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912208.pdf)
 
 ---
 
@@ -15126,7 +15126,7 @@ not there„ nothing that important,
 
 awake yet?
 
-[PDF](../pdf/kronprinsessen/EFTA01912074.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912074.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912074.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912074.pdf)
 
 ---
 
@@ -15166,7 +15166,7 @@ EFTA_R1_00347994
 
 EFTA01911445
 
-[PDF](../pdf/mette/EFTA01911445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911445.pdf)
+[PDF](../../pdf/mette/EFTA01911445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911445.pdf)
 
 ---
 
@@ -15180,7 +15180,7 @@ EFTA01911445
 
 Did you call me?
 
-[PDF](../pdf/kronprinsessen/EFTA00668443.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668443.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668443.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668443.pdf)
 
 ---
 
@@ -15194,7 +15194,7 @@ Did you call me?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01911187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911187.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911187.pdf)
 
 ---
 
@@ -15208,7 +15208,7 @@ Did you call me?
 
 Call me?
 
-[PDF](../pdf/kronprinsessen/EFTA01911087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911087.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911087.pdf)
 
 ---
 
@@ -15226,7 +15226,7 @@ I'm happy
 
 Spent the morning on the beach
 
-[PDF](../pdf/kronprinsessen/EFTA00700851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700851.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00700851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700851.pdf)
 
 ---
 
@@ -15244,7 +15244,7 @@ I'm happy
 
 Spent the morning on the beach
 
-[PDF](../pdf/kronprinsessen/EFTA01796505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796505.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01796505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796505.pdf)
 
 ---
 
@@ -15258,7 +15258,7 @@ Spent the morning on the beach
 
 Ok?
 
-[PDF](../pdf/kronprinsessen/EFTA00951901.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951901.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951901.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951901.pdf)
 
 ---
 
@@ -15274,7 +15274,7 @@ Tnx
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398128.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398128.pdf)
+[PDF](../../pdf/mette/EFTA00398128.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398128.pdf)
 
 ---
 
@@ -15298,7 +15298,7 @@ She has asked me to apologize to you for the mistake.
 
 EFTA00952205
 
-[PDF](../pdf/mette/EFTA00952205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952205.pdf)
+[PDF](../../pdf/mette/EFTA00952205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952205.pdf)
 
 ---
 
@@ -15312,7 +15312,7 @@ EFTA00952205
 
 
 
-[PDF](../pdf/mette/EFTA01909826.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909826.pdf)
+[PDF](../../pdf/mette/EFTA01909826.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909826.pdf)
 
 ---
 
@@ -15326,7 +15326,7 @@ EFTA00952205
 
 we should land at approx 230 thurs. If you are around , you can come meet us and see the big plane.
 
-[PDF](../pdf/kronprinsessen/EFTA00952166.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952166.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952166.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952166.pdf)
 
 ---
 
@@ -15340,7 +15340,7 @@ we should land at approx 230 thurs. If you are around , you can come meet us and
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01909248.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909248.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909248.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909248.pdf)
 
 ---
 
@@ -15364,7 +15364,7 @@ I haven't felt so much at peace in a long time
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00952156.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952156.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952156.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952156.pdf)
 
 ---
 
@@ -15394,7 +15394,7 @@ Did u have a good day . Boris arrives midnight thurs
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908703.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908703.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908703.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908703.pdf)
 
 ---
 
@@ -15432,7 +15432,7 @@ EFTA_R1_00815001
 
 EFTA02151621
 
-[PDF](../pdf/mette/EFTA02151621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151621.pdf)
+[PDF](../../pdf/mette/EFTA02151621.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151621.pdf)
 
 ---
 
@@ -15446,7 +15446,7 @@ EFTA02151621
 
 
 
-[PDF](../pdf/mette/EFTA02151538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151538.pdf)
+[PDF](../../pdf/mette/EFTA02151538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151538.pdf)
 
 ---
 
@@ -15460,7 +15460,7 @@ EFTA02151621
 
 ok, will pass on to Les,
 
-[PDF](../pdf/mette/EFTA00952141.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952141.pdf)
+[PDF](../../pdf/mette/EFTA00952141.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952141.pdf)
 
 ---
 
@@ -15486,7 +15486,7 @@ Marius is in the hospital hurt himself skiing ...
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00952138.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952138.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00952138.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952138.pdf)
 
 ---
 
@@ -15506,7 +15506,7 @@ I'll make your little goddaughter a present instead,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00668494.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668494.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668494.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668494.pdf)
 
 ---
 
@@ -15534,7 +15534,7 @@ To:
 
 mette will call tonight, it will be funny
 
-[PDF](../pdf/mette/EFTA00693098.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693098.pdf)
+[PDF](../../pdf/mette/EFTA00693098.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693098.pdf)
 
 ---
 
@@ -15566,7 +15566,7 @@ Did u have a good day . Boris arrives midnight thurs
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01913474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913474.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913474.pdf)
 
 ---
 
@@ -15584,7 +15584,7 @@ day . Boris arrives midnight thurs
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01913322.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913322.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913322.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913322.pdf)
 
 ---
 
@@ -15598,7 +15598,7 @@ day . Boris arrives midnight thurs
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913086.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913086.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913086.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913086.pdf)
 
 ---
 
@@ -15614,7 +15614,7 @@ Only herself and her meditation teacher are staying at the house. has them on th
 
 as leaving on Thursday the 10 th. we have' departure time though.
 
-[PDF](../pdf/mette/EFTA01912940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912940.pdf)
+[PDF](../../pdf/mette/EFTA01912940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912940.pdf)
 
 ---
 
@@ -15638,7 +15638,7 @@ To:
 
 mette will call tonight, it will be funny
 
-[PDF](../pdf/mette/EFTA02032547.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02032547.pdf)
+[PDF](../../pdf/mette/EFTA02032547.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02032547.pdf)
 
 ---
 
@@ -15662,7 +15662,7 @@ To:
 
 mette will call tonight, it will be funny
 
-[PDF](../pdf/mette/EFTA01912433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912433.pdf)
+[PDF](../../pdf/mette/EFTA01912433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912433.pdf)
 
 ---
 
@@ -15676,7 +15676,7 @@ mette will call tonight, it will be funny
 
 mette will call tonight, it will be funny
 
-[PDF](../pdf/mette/EFTA00951375.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951375.pdf)
+[PDF](../../pdf/mette/EFTA00951375.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951375.pdf)
 
 ---
 
@@ -15690,7 +15690,7 @@ mette will call tonight, it will be funny
 
 
 
-[PDF](../pdf/mette/EFTA01910837.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910837.pdf)
+[PDF](../../pdf/mette/EFTA01910837.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910837.pdf)
 
 ---
 
@@ -15706,7 +15706,7 @@ no, i land directly in palm beach, but i might go to miami late afternoon ,so le
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951367.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951367.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951367.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951367.pdf)
 
 ---
 
@@ -15728,7 +15728,7 @@ Maybe we can drive back together
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00699985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699985.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699985.pdf)
 
 ---
 
@@ -15742,7 +15742,7 @@ Maybe we can drive back together
 
 she'll be in tonite, again,
 
-[PDF](../pdf/kronprinsessen/EFTA00951363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951363.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951363.pdf)
 
 ---
 
@@ -15756,7 +15756,7 @@ she'll be in tonite, again,
 
 Ok I'll try to muster the courage after the beach
 
-[PDF](../pdf/kronprinsessen/EFTA00699802.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699802.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699802.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699802.pdf)
 
 ---
 
@@ -15770,7 +15770,7 @@ Ok I'll try to muster the courage after the beach
 
 . lena andersson„ of thanks,
 
-[PDF](../pdf/kronprinsessen/EFTA00951360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951360.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951360.pdf)
 
 ---
 
@@ -15784,7 +15784,7 @@ Ok I'll try to muster the courage after the beach
 
 Mette will o see Dr. Adelson tomorrow at 10:30. Janusz will drive her.
 
-[PDF](../pdf/mette/EFTA01910507.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910507.pdf)
+[PDF](../../pdf/mette/EFTA01910507.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910507.pdf)
 
 ---
 
@@ -15808,7 +15808,7 @@ EFTA_R1_00707352
 
 EFTA02100493
 
-[PDF](../pdf/kronprinsessen/EFTA02100493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02100493.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02100493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02100493.pdf)
 
 ---
 
@@ -15832,7 +15832,7 @@ EFTA_R1_00707352
 
 EFTA02100493
 
-[PDF](../pdf/mette/EFTA02100493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02100493.pdf)
+[PDF](../../pdf/mette/EFTA02100493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02100493.pdf)
 
 ---
 
@@ -15848,7 +15848,7 @@ no, i land directly in palm beach, but i might go to miami late afternoon ,so le
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01909939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909939.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909939.pdf)
 
 ---
 
@@ -15868,7 +15868,7 @@ EFTA_R1_01728351
 
 EFTA02564516
 
-[PDF](../pdf/mette/EFTA02564516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564516.pdf)
+[PDF](../../pdf/mette/EFTA02564516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564516.pdf)
 
 ---
 
@@ -15894,7 +15894,7 @@ she'll be in tonite, again,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01909802.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909802.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909802.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909802.pdf)
 
 ---
 
@@ -15930,7 +15930,7 @@ EFTA_R1_00815833
 
 EFTA02152050
 
-[PDF](../pdf/mette/EFTA02152050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152050.pdf)
+[PDF](../../pdf/mette/EFTA02152050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152050.pdf)
 
 ---
 
@@ -15946,7 +15946,7 @@ she'll be in tonite, again,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01909632.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909632.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909632.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909632.pdf)
 
 ---
 
@@ -15964,7 +15964,7 @@ Den 7. jan. 2013 Id. 12:01 skrev Jeffrey Epstein :
 
 please . it is for my god daughter, please
 
-[PDF](../pdf/kronprinsessen/EFTA01909584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909584.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909584.pdf)
 
 ---
 
@@ -15978,7 +15978,7 @@ please . it is for my god daughter, please
 
 please . it is for my god daughter, please
 
-[PDF](../pdf/kronprinsessen/EFTA01909038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909038.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909038.pdf)
 
 ---
 
@@ -15992,7 +15992,7 @@ please . it is for my god daughter, please
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01908996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908996.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908996.pdf)
 
 ---
 
@@ -16008,7 +16008,7 @@ N0000 thats too embarrasing
 
 Im shy like that...
 
-[PDF](../pdf/kronprinsessen/EFTA01908957.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908957.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908957.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908957.pdf)
 
 ---
 
@@ -16022,7 +16022,7 @@ Im shy like that...
 
 Im working out in yr gym will call u after
 
-[PDF](../pdf/kronprinsessen/EFTA00951351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951351.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951351.pdf)
 
 ---
 
@@ -16036,7 +16036,7 @@ Im working out in yr gym will call u after
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01908054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908054.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908054.pdf)
 
 ---
 
@@ -16052,7 +16052,7 @@ I called Jack's office and spoke to his assistant...Jack goes to: Andy Adelson o
 
 Shall I recommend this dentist to Princess Mette?
 
-[PDF](../pdf/mette/EFTA01907969.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907969.pdf)
+[PDF](../../pdf/mette/EFTA01907969.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907969.pdf)
 
 ---
 
@@ -16066,7 +16066,7 @@ Shall I recommend this dentist to Princess Mette?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01912159.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912159.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912159.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912159.pdf)
 
 ---
 
@@ -16086,7 +16086,7 @@ Princess Mette is asking Janusz about setting up an appt to bleach her teeth wit
 
 dcntist....please advise what dentist and if you would like me to make her an appt.
 
-[PDF](../pdf/mette/EFTA01912054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912054.pdf)
+[PDF](../../pdf/mette/EFTA01912054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912054.pdf)
 
 ---
 
@@ -16106,7 +16106,7 @@ EFTA_R1_01727642
 
 EFTA02564020
 
-[PDF](../pdf/mette/EFTA02564020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564020.pdf)
+[PDF](../../pdf/mette/EFTA02564020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564020.pdf)
 
 ---
 
@@ -16120,7 +16120,7 @@ EFTA02564020
 
 hmmm, I know JE's dentist in NY but not in PB? I will ask JE...
 
-[PDF](../pdf/mette/EFTA02151061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151061.pdf)
+[PDF](../../pdf/mette/EFTA02151061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151061.pdf)
 
 ---
 
@@ -16140,7 +16140,7 @@ I love the kitchen
 
 I makes me want to cook...
 
-[PDF](../pdf/kronprinsessen/EFTA00700988.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700988.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00700988.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700988.pdf)
 
 ---
 
@@ -16156,7 +16156,7 @@ haircut, dentist, sushi, bicylces. shopping, movies, beach, dock, enjoy, . feel 
 
 bathroom,
 
-[PDF](../pdf/kronprinsessen/EFTA00951345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951345.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951345.pdf)
 
 ---
 
@@ -16176,7 +16176,7 @@ I love the kitchen
 
 I makes me want to cook...
 
-[PDF](../pdf/kronprinsessen/EFTA01911050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911050.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911050.pdf)
 
 ---
 
@@ -16190,7 +16190,7 @@ I makes me want to cook...
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910799.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910799.pdf)
 
 ---
 
@@ -16222,7 +16222,7 @@ EFTA_R1_01235203
 
 EFTA02322525
 
-[PDF](../pdf/kronprinsessen/EFTA02322525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02322525.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02322525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02322525.pdf)
 
 ---
 
@@ -16254,7 +16254,7 @@ EFTA_R1_01235203
 
 EFTA02322525
 
-[PDF](../pdf/mette/EFTA02322525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02322525.pdf)
+[PDF](../../pdf/mette/EFTA02322525.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02322525.pdf)
 
 ---
 
@@ -16270,7 +16270,7 @@ has just let me know that princess Mette has arrived at the house an= is having 
 
 Her teacher arrived earlier at 6 pm
 
-[PDF](../pdf/mette/EFTA02564389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564389.pdf)
+[PDF](../../pdf/mette/EFTA02564389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564389.pdf)
 
 ---
 
@@ -16312,7 +16312,7 @@ EFTA_R1_00814513
 
 EFTA02151304
 
-[PDF](../pdf/kronprinsessen/EFTA02151304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151304.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151304.pdf)
 
 ---
 
@@ -16354,7 +16354,7 @@ EFTA_R1_00814513
 
 EFTA02151304
 
-[PDF](../pdf/mette/EFTA02151304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151304.pdf)
+[PDF](../../pdf/mette/EFTA02151304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151304.pdf)
 
 ---
 
@@ -16368,7 +16368,7 @@ EFTA02151304
 
 
 
-[PDF](../pdf/mette/EFTA00631707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00631707.pdf)
+[PDF](../../pdf/mette/EFTA00631707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00631707.pdf)
 
 ---
 
@@ -16382,7 +16382,7 @@ EFTA02151304
 
 
 
-[PDF](../pdf/mette/EFTA01911739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911739.pdf)
+[PDF](../../pdf/mette/EFTA01911739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911739.pdf)
 
 ---
 
@@ -16396,7 +16396,7 @@ EFTA02151304
 
 
 
-[PDF](../pdf/mette/EFTA02706694.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706694.pdf)
+[PDF](../../pdf/mette/EFTA02706694.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706694.pdf)
 
 ---
 
@@ -16410,7 +16410,7 @@ EFTA02151304
 
 
 
-[PDF](../pdf/mette/EFTA02563965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563965.pdf)
+[PDF](../../pdf/mette/EFTA02563965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563965.pdf)
 
 ---
 
@@ -16424,7 +16424,7 @@ EFTA02151304
 
 
 
-[PDF](../pdf/mette/EFTA02341516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02341516.pdf)
+[PDF](../../pdf/mette/EFTA02341516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02341516.pdf)
 
 ---
 
@@ -16440,7 +16440,7 @@ stubborn, i also understand,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951188.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951188.pdf)
 
 ---
 
@@ -16460,7 +16460,7 @@ Promise
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951173.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951173.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951173.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951173.pdf)
 
 ---
 
@@ -16508,7 +16508,7 @@ Mm
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951170.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951170.pdf)
 
 ---
 
@@ -16524,7 +16524,7 @@ And ps I won't smoke at the house..
 
 Promise ..
 
-[PDF](../pdf/kronprinsessen/EFTA02356248.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02356248.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02356248.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02356248.pdf)
 
 ---
 
@@ -16538,7 +16538,7 @@ Promise ..
 
 III be there
 
-[PDF](../pdf/mette/EFTA00951153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951153.pdf)
+[PDF](../../pdf/mette/EFTA00951153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951153.pdf)
 
 ---
 
@@ -16554,7 +16554,7 @@ Ill be there
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01911998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998.pdf)
+[PDF](../../pdf/mette/EFTA01911998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998.pdf)
 
 ---
 
@@ -16570,7 +16570,7 @@ Ill be there
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01911998-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998-1.pdf)
+[PDF](../../pdf/mette/EFTA01911998-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998-1.pdf)
 
 ---
 
@@ -16596,7 +16596,7 @@ Great come stay
 
 Sony for all the typos .
 
-[PDF](../pdf/mette/EFTA00700010.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700010.pdf)
+[PDF](../../pdf/mette/EFTA00700010.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700010.pdf)
 
 ---
 
@@ -16612,7 +16612,7 @@ Great come stay
 
 Sony for all the typos .
 
-[PDF](../pdf/mette/EFTA00700009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700009.pdf)
+[PDF](../../pdf/mette/EFTA00700009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700009.pdf)
 
 ---
 
@@ -16660,7 +16660,7 @@ year, three years, 1.5. off the top 30 % of the 8.5. left, s 2.55 ,million befor
 
 withheld.
 
-[PDF](../pdf/mette/EFTA00700008.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700008.pdf)
+[PDF](../../pdf/mette/EFTA00700008.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700008.pdf)
 
 ---
 
@@ -16674,7 +16674,7 @@ withheld.
 
 Maturity sneaks its way in ,,,glad
 
-[PDF](../pdf/kronprinsessen/EFTA00951123.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951123.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951123.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951123.pdf)
 
 ---
 
@@ -16692,7 +16692,7 @@ I'm pretty fortunate
 
 I should try to keep it that way
 
-[PDF](../pdf/kronprinsessen/EFTA00668381.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668381.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668381.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668381.pdf)
 
 ---
 
@@ -16706,7 +16706,7 @@ I should try to keep it that way
 
 Will let you know when I do
 
-[PDF](../pdf/kronprinsessen/EFTA00951792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951792.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951792.pdf)
 
 ---
 
@@ -16722,7 +16722,7 @@ Where are u having lunch with elon??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00699979.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699979.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699979.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699979.pdf)
 
 ---
 
@@ -16738,7 +16738,7 @@ Will et you know when I do
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01910183.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910183.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910183.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910183.pdf)
 
 ---
 
@@ -16756,7 +16756,7 @@ Our house is just nxt to the airport at pointe lezard
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00668503.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668503.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668503.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668503.pdf)
 
 ---
 
@@ -16772,7 +16772,7 @@ Thx I look like a white whale
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00668500.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668500.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668500.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668500.pdf)
 
 ---
 
@@ -16788,7 +16788,7 @@ Where are u having lunch with don??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01909772.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909772.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909772.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909772.pdf)
 
 ---
 
@@ -16804,7 +16804,7 @@ i will fly over if you tell me where you are.. make alot of noise etc.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951788.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951788.pdf)
 
 ---
 
@@ -16820,7 +16820,7 @@ yes, it was reported back immediatly, she said you looked great,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951785.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951785.pdf)
 
 ---
 
@@ -16836,7 +16836,7 @@ No the day before
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00693099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693099.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00693099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693099.pdf)
 
 ---
 
@@ -16852,7 +16852,7 @@ By the way I saw in town yesterday
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00693094.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693094.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00693094.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693094.pdf)
 
 ---
 
@@ -16870,7 +16870,7 @@ And you leave when ??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00693091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693091.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00693091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693091.pdf)
 
 ---
 
@@ -16886,7 +16886,7 @@ And you leave when ??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951782.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951782.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951782.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951782.pdf)
 
 ---
 
@@ -16904,7 +16904,7 @@ Our house is just nxt to the airport at pointe lezard
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01796040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796040.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01796040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796040.pdf)
 
 ---
 
@@ -16920,7 +16920,7 @@ Thx I look like a white whale
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01909090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909090.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909090.pdf)
 
 ---
 
@@ -16936,7 +16936,7 @@ i will fly over if you tell me where you are.. make alot of noise etc.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908916.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908916.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908916.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908916.pdf)
 
 ---
 
@@ -16952,7 +16952,7 @@ yes, it was reported back immediatly, she said you looked great,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908882.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908882.pdf)
 
 ---
 
@@ -16968,7 +16968,7 @@ I'
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908729.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908729.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908729.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908729.pdf)
 
 ---
 
@@ -16984,7 +16984,7 @@ No the day before
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01795783.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795783.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01795783.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795783.pdf)
 
 ---
 
@@ -17002,7 +17002,7 @@ And you leave when ??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01795981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795981.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01795981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795981.pdf)
 
 ---
 
@@ -17018,7 +17018,7 @@ By the way I saw Svetlana in town yesterday
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01795862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795862.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01795862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795862.pdf)
 
 ---
 
@@ -17032,7 +17032,7 @@ By the way I saw Svetlana in town yesterday
 
 I will make a huge effort to see you as I want you to meet Haakon my husband
 
-[PDF](../pdf/kronprinsessen/EFTA00646352.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646352.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00646352.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646352.pdf)
 
 ---
 
@@ -17046,7 +17046,7 @@ I will make a huge effort to see you as I want you to meet Haakon my husband
 
 When do you have to leave?? Before dark ?
 
-[PDF](../pdf/kronprinsessen/EFTA00646350.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646350.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00646350.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646350.pdf)
 
 ---
 
@@ -17060,7 +17060,7 @@ When do you have to leave?? Before dark ?
 
 i will meet elon musk for lunch, you can join, or see you after , or in palm beach
 
-[PDF](../pdf/kronprinsessen/EFTA00951754.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951754.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951754.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951754.pdf)
 
 ---
 
@@ -17076,7 +17076,7 @@ When do you land ????
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01796137.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796137.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01796137.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796137.pdf)
 
 ---
 
@@ -17096,7 +17096,7 @@ i will meet don musk for lunch, you can join, or sec you after , or in palm beac
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01911679.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911679.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911679.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911679.pdf)
 
 ---
 
@@ -17116,7 +17116,7 @@ i will meet don musk for lunch, you can join, or sec you after , or in palm beac
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01911628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911628.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911628.pdf)
 
 ---
 
@@ -17246,7 +17246,7 @@ EFTA02151701
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02151700.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151700.pdf)
+[PDF](../../pdf/mette/EFTA02151700.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151700.pdf)
 
 ---
 
@@ -17266,7 +17266,7 @@ What do you have to do besides seeing me 999999
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01911112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911112.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911112.pdf)
 
 ---
 
@@ -17280,7 +17280,7 @@ What do you have to do besides seeing me 999999
 
 What do you have to do besides seeing me 9999"
 
-[PDF](../pdf/kronprinsessen/EFTA00951734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951734.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951734.pdf)
 
 ---
 
@@ -17302,7 +17302,7 @@ dark
 
 M
 
-[PDF](../pdf/kronprinsessen/EFTA00951721.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951721.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951721.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951721.pdf)
 
 ---
 
@@ -17316,7 +17316,7 @@ M
 
 no worry, i have plenty to do there
 
-[PDF](../pdf/kronprinsessen/EFTA00951718.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951718.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951718.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951718.pdf)
 
 ---
 
@@ -17330,7 +17330,7 @@ no worry, i have plenty to do there
 
 I dont know .. U have other plans than seeing me???
 
-[PDF](../pdf/kronprinsessen/EFTA00951716.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951716.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951716.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951716.pdf)
 
 ---
 
@@ -17344,7 +17344,7 @@ I dont know .. U have other plans than seeing me???
 
 yes, what time will you be back on land if at all?
 
-[PDF](../pdf/kronprinsessen/EFTA00951697.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951697.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951697.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951697.pdf)
 
 ---
 
@@ -17360,7 +17360,7 @@ Great let me know when ... I think we r out on a boat swimming with kids
 
 U coming alone??
 
-[PDF](../pdf/kronprinsessen/EFTA00951696.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951696.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951696.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951696.pdf)
 
 ---
 
@@ -17374,7 +17374,7 @@ U coming alone??
 
 What do you have to do besides seeing me 7,2,7,
 
-[PDF](../pdf/kronprinsessen/EFTA01761860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761860.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01761860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761860.pdf)
 
 ---
 
@@ -17402,7 +17402,7 @@ Den 3. jan. 2013 Id. 18:56 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 yes, what time will you be back on land if at all?
 
-[PDF](../pdf/kronprinsessen/EFTA02038244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02038244.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02038244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02038244.pdf)
 
 ---
 
@@ -17430,7 +17430,7 @@ Den 3. jan. 2013 Id. 18:56 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 yes, what time will you be back on land if at all?
 
-[PDF](../pdf/kronprinsessen/EFTA01913886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913886.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913886.pdf)
 
 ---
 
@@ -17444,7 +17444,7 @@ yes, what time will you be back on land if at all?
 
 will be there tomoorw
 
-[PDF](../pdf/kronprinsessen/EFTA00951686.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951686.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951686.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951686.pdf)
 
 ---
 
@@ -17458,7 +17458,7 @@ will be there tomoorw
 
 yes, what time will you be back on land if at all?
 
-[PDF](../pdf/kronprinsessen/EFTA01910847.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910847.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910847.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910847.pdf)
 
 ---
 
@@ -17474,7 +17474,7 @@ Great let me know when ... I think we r out on a boat swimming with kids
 
 U coming alone??
 
-[PDF](../pdf/kronprinsessen/EFTA01910807.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910807.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910807.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910807.pdf)
 
 ---
 
@@ -17490,7 +17490,7 @@ Great let me know when ... I think we r out on a boat swimming with kids
 
 U coming alone??
 
-[PDF](../pdf/kronprinsessen/EFTA02021136.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021136.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02021136.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021136.pdf)
 
 ---
 
@@ -17574,7 +17574,7 @@ EFTA00398700
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398699.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398699.pdf)
 
 ---
 
@@ -17658,7 +17658,7 @@ EFTA00398700
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398699.pdf)
+[PDF](../../pdf/mette/EFTA00398699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398699.pdf)
 
 ---
 
@@ -17674,7 +17674,7 @@ super, thanks.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398695.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398695.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398695.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398695.pdf)
 
 ---
 
@@ -17690,7 +17690,7 @@ super, thanks.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398695.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398695.pdf)
+[PDF](../../pdf/mette/EFTA00398695.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398695.pdf)
 
 ---
 
@@ -17710,7 +17710,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00558730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00558730.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00558730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00558730.pdf)
 
 ---
 
@@ -17730,7 +17730,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398691.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398691.pdf)
 
 ---
 
@@ -17750,7 +17750,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00558730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00558730.pdf)
+[PDF](../../pdf/mette/EFTA00558730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00558730.pdf)
 
 ---
 
@@ -17770,7 +17770,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398691.pdf)
+[PDF](../../pdf/mette/EFTA00398691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398691.pdf)
 
 ---
 
@@ -17784,7 +17784,7 @@ Myoshin
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910031.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910031.pdf)
 
 ---
 
@@ -17800,7 +17800,7 @@ You are welcome.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398683.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398683.pdf)
 
 ---
 
@@ -17816,7 +17816,7 @@ You are welcome.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398683.pdf)
+[PDF](../../pdf/mette/EFTA00398683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398683.pdf)
 
 ---
 
@@ -17832,7 +17832,7 @@ thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398671.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398671.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398671.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398671.pdf)
 
 ---
 
@@ -17848,7 +17848,7 @@ thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398671.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398671.pdf)
+[PDF](../../pdf/mette/EFTA00398671.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398671.pdf)
 
 ---
 
@@ -17866,7 +17866,7 @@ Received thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398668.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398668.pdf)
 
 ---
 
@@ -17884,7 +17884,7 @@ Received thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398668.pdf)
+[PDF](../../pdf/mette/EFTA00398668.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398668.pdf)
 
 ---
 
@@ -17898,7 +17898,7 @@ Received thanks
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02151281.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151281.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151281.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151281.pdf)
 
 ---
 
@@ -17912,7 +17912,7 @@ Received thanks
 
 
 
-[PDF](../pdf/mette/EFTA02151281.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151281.pdf)
+[PDF](../../pdf/mette/EFTA02151281.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151281.pdf)
 
 ---
 
@@ -17928,7 +17928,7 @@ super, thanks.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02151265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151265.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151265.pdf)
 
 ---
 
@@ -17944,7 +17944,7 @@ super, thanks.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02151265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151265.pdf)
+[PDF](../../pdf/mette/EFTA02151265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151265.pdf)
 
 ---
 
@@ -17958,7 +17958,7 @@ super, thanks.
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02151244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151244.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151244.pdf)
 
 ---
 
@@ -17972,7 +17972,7 @@ super, thanks.
 
 
 
-[PDF](../pdf/mette/EFTA02151244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151244.pdf)
+[PDF](../../pdf/mette/EFTA02151244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151244.pdf)
 
 ---
 
@@ -17992,7 +17992,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
 
 ---
 
@@ -18012,7 +18012,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
+[PDF](../../pdf/mette/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
 
 ---
 
@@ -18028,7 +18028,7 @@ You are welcome.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02151172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151172.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151172.pdf)
 
 ---
 
@@ -18044,7 +18044,7 @@ You are welcome.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02151172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151172.pdf)
+[PDF](../../pdf/mette/EFTA02151172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151172.pdf)
 
 ---
 
@@ -18072,7 +18072,7 @@ Thanks,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398663.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398663.pdf)
 
 ---
 
@@ -18100,7 +18100,7 @@ Thanks,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398663.pdf)
+[PDF](../../pdf/mette/EFTA00398663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398663.pdf)
 
 ---
 
@@ -18116,7 +18116,7 @@ Received Lesley thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02151047.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151047.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151047.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151047.pdf)
 
 ---
 
@@ -18132,7 +18132,7 @@ Received Lesley thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02151047.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151047.pdf)
+[PDF](../../pdf/mette/EFTA02151047.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151047.pdf)
 
 ---
 
@@ -18154,7 +18154,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00398660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398660.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398660.pdf)
 
 ---
 
@@ -18176,7 +18176,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00398660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398660.pdf)
+[PDF](../../pdf/mette/EFTA00398660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398660.pdf)
 
 ---
 
@@ -18190,7 +18190,7 @@ Myoshin
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02150980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150980.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150980.pdf)
 
 ---
 
@@ -18204,7 +18204,7 @@ Myoshin
 
 
 
-[PDF](../pdf/mette/EFTA02150980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150980.pdf)
+[PDF](../../pdf/mette/EFTA02150980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150980.pdf)
 
 ---
 
@@ -18226,7 +18226,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02150952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150952.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150952.pdf)
 
 ---
 
@@ -18248,7 +18248,7 @@ Myoshin
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02150952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150952.pdf)
+[PDF](../../pdf/mette/EFTA02150952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150952.pdf)
 
 ---
 
@@ -18262,7 +18262,7 @@ Myoshin
 
 Thanks for all your organizing
 
-[PDF](../pdf/kronprinsessen/EFTA00398609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398609.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398609.pdf)
 
 ---
 
@@ -18276,7 +18276,7 @@ Thanks for all your organizing
 
 Thanks for all your organizing
 
-[PDF](../pdf/mette/EFTA00398609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398609.pdf)
+[PDF](../../pdf/mette/EFTA00398609.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398609.pdf)
 
 ---
 
@@ -18290,7 +18290,7 @@ Thanks for all your organizing
 
 Update received tnx
 
-[PDF](../pdf/kronprinsessen/EFTA00398588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398588.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398588.pdf)
 
 ---
 
@@ -18304,7 +18304,7 @@ Update received tnx
 
 Update received tnx
 
-[PDF](../pdf/mette/EFTA00398588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398588.pdf)
+[PDF](../../pdf/mette/EFTA00398588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398588.pdf)
 
 ---
 
@@ -18320,7 +18320,7 @@ Excellent!!
 
 (and you are so very welcome)
 
-[PDF](../pdf/kronprinsessen/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
 
 ---
 
@@ -18336,7 +18336,7 @@ Excellent!!
 
 (and you are so very welcome)
 
-[PDF](../pdf/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+[PDF](../../pdf/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
 
 ---
 
@@ -18352,7 +18352,7 @@ Thank you so much for your kind help!!
 
 Sun & sand from here
 
-[PDF](../pdf/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
 
 ---
 
@@ -18368,7 +18368,7 @@ Thank you so much for your kind help!!
 
 Sun & sand from here
 
-[PDF](../pdf/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+[PDF](../../pdf/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
 
 ---
 
@@ -18392,7 +18392,7 @@ Will await to hear from Myoshin Kelley.
 
 Safe travels!
 
-[PDF](../pdf/kronprinsessen/EFTA00398582.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398582.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398582.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398582.pdf)
 
 ---
 
@@ -18416,7 +18416,7 @@ Will await to hear from Myoshin Kelley.
 
 Safe travels!
 
-[PDF](../pdf/mette/EFTA00398582.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398582.pdf)
+[PDF](../../pdf/mette/EFTA00398582.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398582.pdf)
 
 ---
 
@@ -18446,7 +18446,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/kronprinsessen/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
 
 ---
 
@@ -18476,7 +18476,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+[PDF](../../pdf/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
 
 ---
 
@@ -18490,7 +18490,7 @@ Warm regards Mette
 
 no prob..
 
-[PDF](../pdf/kronprinsessen/EFTA02151208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151208.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151208.pdf)
 
 ---
 
@@ -18504,7 +18504,7 @@ no prob..
 
 no prob..
 
-[PDF](../pdf/mette/EFTA02151208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151208.pdf)
+[PDF](../../pdf/mette/EFTA02151208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151208.pdf)
 
 ---
 
@@ -18518,7 +18518,7 @@ no prob..
 
 Thanks for all your organizing Les
 
-[PDF](../pdf/kronprinsessen/EFTA02151178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151178.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151178.pdf)
 
 ---
 
@@ -18532,7 +18532,7 @@ Thanks for all your organizing Les
 
 Thanks for all your organizing Les
 
-[PDF](../pdf/mette/EFTA02151178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151178.pdf)
+[PDF](../../pdf/mette/EFTA02151178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151178.pdf)
 
 ---
 
@@ -18554,7 +18554,7 @@ Thank you!
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/kronprinsessen/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
 
 ---
 
@@ -18576,7 +18576,7 @@ Thank you!
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/mette/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
+[PDF](../../pdf/mette/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
 
 ---
 
@@ -18590,7 +18590,7 @@ Assistant to Jeffrey Epstein
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02151028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151028.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151028.pdf)
 
 ---
 
@@ -18604,7 +18604,7 @@ Assistant to Jeffrey Epstein
 
 
 
-[PDF](../pdf/mette/EFTA02151028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151028.pdf)
+[PDF](../../pdf/mette/EFTA02151028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151028.pdf)
 
 ---
 
@@ -18618,7 +18618,7 @@ Assistant to Jeffrey Epstein
 
 update received tnx
 
-[PDF](../pdf/kronprinsessen/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
 
 ---
 
@@ -18632,7 +18632,7 @@ update received tnx
 
 update received tnx
 
-[PDF](../pdf/mette/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
+[PDF](../../pdf/mette/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
 
 ---
 
@@ -18648,7 +18648,7 @@ Thank you so much for your kind help!!
 
 Sun 6 sand from here
 
-[PDF](../pdf/kronprinsessen/EFTA02150961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150961.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150961.pdf)
 
 ---
 
@@ -18664,7 +18664,7 @@ Thank you so much for your kind help!!
 
 Sun 6 sand from here
 
-[PDF](../pdf/mette/EFTA02150961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150961.pdf)
+[PDF](../../pdf/mette/EFTA02150961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150961.pdf)
 
 ---
 
@@ -18678,7 +18678,7 @@ Sun 6 sand from here
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02150958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150958.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150958.pdf)
 
 ---
 
@@ -18692,7 +18692,7 @@ Sun 6 sand from here
 
 
 
-[PDF](../pdf/mette/EFTA02150958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150958.pdf)
+[PDF](../../pdf/mette/EFTA02150958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150958.pdf)
 
 ---
 
@@ -18724,7 +18724,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/kronprinsessen/EFTA02150944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150944.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02150944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150944.pdf)
 
 ---
 
@@ -18756,7 +18756,7 @@ Hope this gives some clarity., sorry this has taken some time. Holiday life ....
 
 Warm regards Mette
 
-[PDF](../pdf/mette/EFTA02150944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150944.pdf)
+[PDF](../../pdf/mette/EFTA02150944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150944.pdf)
 
 ---
 
@@ -18780,7 +18780,7 @@ Lesley
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/kronprinsessen/EFTA02152144.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152144.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02152144.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152144.pdf)
 
 ---
 
@@ -18804,7 +18804,7 @@ Lesley
 
 Assistant to Jeffrey Epstein
 
-[PDF](../pdf/mette/EFTA02152144.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152144.pdf)
+[PDF](../../pdf/mette/EFTA02152144.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02152144.pdf)
 
 ---
 
@@ -18822,7 +18822,7 @@ I send good bugs
 
 Let me know when u r better
 
-[PDF](../pdf/kronprinsessen/EFTA00951527.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951527.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951527.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951527.pdf)
 
 ---
 
@@ -18836,7 +18836,7 @@ Let me know when u r better
 
 in bed with flu, my turn
 
-[PDF](../pdf/kronprinsessen/EFTA00951523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951523.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951523.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951523.pdf)
 
 ---
 
@@ -18854,7 +18854,7 @@ Anyway are you coming over to see me soon???
 
 I miss my crazy friend
 
-[PDF](../pdf/kronprinsessen/EFTA00951521.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951521.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951521.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951521.pdf)
 
 ---
 
@@ -18872,7 +18872,7 @@ would be super so the house staff will know around when to expect her.
 
 Thanks,
 
-[PDF](../pdf/kronprinsessen/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
 
 ---
 
@@ -18890,7 +18890,7 @@ would be super so the house staff will know around when to expect her.
 
 Thanks,
 
-[PDF](../pdf/mette/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
+[PDF](../../pdf/mette/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
 
 ---
 
@@ -18904,7 +18904,7 @@ Thanks,
 
 Ya
 
-[PDF](../pdf/kronprinsessen/EFTA00951515.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951515.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951515.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951515.pdf)
 
 ---
 
@@ -18918,7 +18918,7 @@ Ya
 
 Tnx
 
-[PDF](../pdf/kronprinsessen/EFTA00398534.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398534.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398534.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398534.pdf)
 
 ---
 
@@ -18932,7 +18932,7 @@ Tnx
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA00398532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398532.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398532.pdf)
 
 ---
 
@@ -18946,7 +18946,7 @@ Yes
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA00951498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951498.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951498.pdf)
 
 ---
 
@@ -18960,7 +18960,7 @@ Yes
 
 Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kronprinsessen is asking?
 
-[PDF](../pdf/kronprinsessen/EFTA00398529.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398529.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398529.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398529.pdf)
 
 ---
 
@@ -18974,7 +18974,7 @@ Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kron
 
 Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kronprinsessen is asking?
 
-[PDF](../pdf/kronprinsessen/EFTA00676878.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676878.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00676878.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676878.pdf)
 
 ---
 
@@ -18988,7 +18988,7 @@ Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kron
 
 Thank you Les, let me know if you need help
 
-[PDF](../pdf/kronprinsessen/EFTA00676873.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676873.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00676873.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676873.pdf)
 
 ---
 
@@ -19002,7 +19002,7 @@ Thank you Les, let me know if you need help
 
 will coordinate
 
-[PDF](../pdf/kronprinsessen/EFTA00676868.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676868.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00676868.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00676868.pdf)
 
 ---
 
@@ -19032,7 +19032,7 @@ Assistant to Jeffrey Epstein
 
 EFTA00398528
 
-[PDF](../pdf/kronprinsessen/EFTA00398528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398528.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398528.pdf)
 
 ---
 
@@ -19068,7 +19068,7 @@ I hope i get to see you here..
 
 Will call in half an hour approx
 
-[PDF](../pdf/kronprinsessen/EFTA00951495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951495.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951495.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951495.pdf)
 
 ---
 
@@ -19106,7 +19106,7 @@ I hope i get to see you here..
 
 Will call in half an hour approx
 
-[PDF](../pdf/kronprinsessen/EFTA00398526.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398526.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00398526.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398526.pdf)
 
 ---
 
@@ -19132,7 +19132,7 @@ I hope i get to see you here..
 
 Will call in half an hour approx
 
-[PDF](../pdf/kronprinsessen/EFTA00951493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951493.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951493.pdf)
 
 ---
 
@@ -19146,7 +19146,7 @@ Will call in half an hour approx
 
 + 1 first?
 
-[PDF](../pdf/kronprinsessen/EFTA00951492.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951492.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951492.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951492.pdf)
 
 ---
 
@@ -19166,7 +19166,7 @@ Let me know when u r better
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01912591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912591.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912591.pdf)
 
 ---
 
@@ -19180,7 +19180,7 @@ Let me know when u r better
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00951491.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951491.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951491.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951491.pdf)
 
 ---
 
@@ -19194,7 +19194,7 @@ Let me know when u r better
 
 in bed with flu, my turn
 
-[PDF](../pdf/kronprinsessen/EFTA01912491.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912491.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912491.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912491.pdf)
 
 ---
 
@@ -19212,7 +19212,7 @@ Anyway are you coming over to see me soon???
 
 I miss my crazy friend
 
-[PDF](../pdf/kronprinsessen/EFTA01912440.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912440.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912440.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912440.pdf)
 
 ---
 
@@ -19232,7 +19232,7 @@ expect her.
 
 Thanks, Lesley
 
-[PDF](../pdf/kronprinsessen/EFTA02151518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151518.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151518.pdf)
 
 ---
 
@@ -19252,7 +19252,7 @@ expect her.
 
 Thanks, Lesley
 
-[PDF](../pdf/mette/EFTA02151518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151518.pdf)
+[PDF](../../pdf/mette/EFTA02151518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151518.pdf)
 
 ---
 
@@ -19266,7 +19266,7 @@ Thanks, Lesley
 
 Ya
 
-[PDF](../pdf/kronprinsessen/EFTA01912083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912083.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912083.pdf)
 
 ---
 
@@ -19280,7 +19280,7 @@ Ya
 
 Got it all
 
-[PDF](../pdf/kronprinsessen/EFTA02151464.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151464.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151464.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151464.pdf)
 
 ---
 
@@ -19296,7 +19296,7 @@ yes
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01911625.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911625.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911625.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911625.pdf)
 
 ---
 
@@ -19312,7 +19312,7 @@ Jeffrey, is it ok for Myoshin Kelley to arrive earlier to your house as Ms. Kron
 
 asking?
 
-[PDF](../pdf/kronprinsessen/EFTA01911595.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911595.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911595.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911595.pdf)
 
 ---
 
@@ -19326,7 +19326,7 @@ asking?
 
 Thank you Les, let me know if you need help
 
-[PDF](../pdf/kronprinsessen/EFTA01911556.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911556.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911556.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911556.pdf)
 
 ---
 
@@ -19362,7 +19362,7 @@ EFTA_R1_00814477
 
 EFTA02151273
 
-[PDF](../pdf/kronprinsessen/EFTA02151273.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151273.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02151273.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151273.pdf)
 
 ---
 
@@ -19386,7 +19386,7 @@ Subject: Re:
 
 To: Jeffrey Epstein &=t;jeevacation@gmail.com Will call in half an hour approx
 
-[PDF](../pdf/kronprinsessen/EFTA02564794.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564794.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02564794.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564794.pdf)
 
 ---
 
@@ -19410,7 +19410,7 @@ I hope i get to see you here..
 
 Will call in half an hour approx
 
-[PDF](../pdf/kronprinsessen/EFTA01762044.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762044.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762044.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762044.pdf)
 
 ---
 
@@ -19424,7 +19424,7 @@ Will call in half an hour approx
 
 + 1 first?
 
-[PDF](../pdf/kronprinsessen/EFTA01762028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762028.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762028.pdf)
 
 ---
 
@@ -19438,7 +19438,7 @@ Will call in half an hour approx
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01911124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911124.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911124.pdf)
 
 ---
 
@@ -19452,7 +19452,7 @@ Will call in half an hour approx
 
 What number can I reach u on??
 
-[PDF](../pdf/kronprinsessen/EFTA00951480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951480.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951480.pdf)
 
 ---
 
@@ -19472,7 +19472,7 @@ EFTA_R1_01406071
 
 EFTA02386292
 
-[PDF](../pdf/kronprinsessen/EFTA02386292.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02386292.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02386292.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02386292.pdf)
 
 ---
 
@@ -19486,7 +19486,7 @@ EFTA02386292
 
 What number can I reach u on??
 
-[PDF](../pdf/kronprinsessen/EFTA01762224.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762224.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762224.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762224.pdf)
 
 ---
 
@@ -19500,7 +19500,7 @@ What number can I reach u on??
 
 What number can I reach u on??
 
-[PDF](../pdf/kronprinsessen/EFTA02564441.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564441.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02564441.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564441.pdf)
 
 ---
 
@@ -19514,7 +19514,7 @@ What number can I reach u on??
 
 What number can I reach u on??
 
-[PDF](../pdf/kronprinsessen/EFTA01910257.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910257.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910257.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910257.pdf)
 
 ---
 
@@ -19528,7 +19528,7 @@ What number can I reach u on??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00642435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642435.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00642435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642435.pdf)
 
 ---
 
@@ -19542,7 +19542,7 @@ What number can I reach u on??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01187730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01187730.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01187730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01187730.pdf)
 
 ---
 
@@ -19556,7 +19556,7 @@ What number can I reach u on??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01762994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762994.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762994.pdf)
 
 ---
 
@@ -19570,7 +19570,7 @@ What number can I reach u on??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02706570.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706570.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02706570.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706570.pdf)
 
 ---
 
@@ -19586,7 +19586,7 @@ Send photo of heli
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951992.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951992.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951992.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951992.pdf)
 
 ---
 
@@ -19602,7 +19602,7 @@ Send photo of hell
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908712.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908712.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908712.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908712.pdf)
 
 ---
 
@@ -19618,7 +19618,7 @@ you can visit any day iwill send heli
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00950735.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950735.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950735.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950735.pdf)
 
 ---
 
@@ -19634,7 +19634,7 @@ you can visit any day iwill send hell
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01908244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908244.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01908244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908244.pdf)
 
 ---
 
@@ -19652,7 +19652,7 @@ LI having fun on the island???
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01763221.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763221.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763221.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763221.pdf)
 
 ---
 
@@ -19666,7 +19666,7 @@ LI having fun on the island???
 
 Just another day
 
-[PDF](../pdf/kronprinsessen/EFTA01911369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911369.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911369.pdf)
 
 ---
 
@@ -19688,7 +19688,7 @@ Happy new yr my friend....
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA00711295.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711295.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00711295.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711295.pdf)
 
 ---
 
@@ -19710,7 +19710,7 @@ Happy new yr my friend....
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA01911011.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911011.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911011.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911011.pdf)
 
 ---
 
@@ -19724,7 +19724,7 @@ Mm
 
 No did not want to see you sick
 
-[PDF](../pdf/kronprinsessen/EFTA01910605.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910605.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910605.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910605.pdf)
 
 ---
 
@@ -19738,7 +19738,7 @@ No did not want to see you sick
 
 U in st barths
 
-[PDF](../pdf/kronprinsessen/EFTA00693065.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693065.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00693065.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693065.pdf)
 
 ---
 
@@ -19756,7 +19756,7 @@ Den 29. des. 2012 Id. 09:17 slcrev Jeffrey Epstein leevacation@gmail.com>:
 
 high winds , will now arrive st barth on monday instead , hope to sec you then
 
-[PDF](../pdf/kronprinsessen/EFTA01910134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910134.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910134.pdf)
 
 ---
 
@@ -19772,7 +19772,7 @@ Stuck in bed with food poisoning..
 
 Just so u know if u r coming today
 
-[PDF](../pdf/kronprinsessen/EFTA01911590.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911590.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911590.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911590.pdf)
 
 ---
 
@@ -19786,7 +19786,7 @@ Just so u know if u r coming today
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01911944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911944.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911944.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911944.pdf)
 
 ---
 
@@ -19800,7 +19800,7 @@ Just so u know if u r coming today
 
 Of course I want to see youmn
 
-[PDF](../pdf/kronprinsessen/EFTA00950622.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950622.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950622.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950622.pdf)
 
 ---
 
@@ -19814,7 +19814,7 @@ Of course I want to see youmn
 
 Of course I want to see youttttt
 
-[PDF](../pdf/kronprinsessen/EFTA01911013.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911013.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911013.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911013.pdf)
 
 ---
 
@@ -19828,7 +19828,7 @@ Of course I want to see youttttt
 
 I will be in st barth tomorrow „ how do I find you?
 
-[PDF](../pdf/kronprinsessen/EFTA00950589.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950589.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950589.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950589.pdf)
 
 ---
 
@@ -19842,7 +19842,7 @@ I will be in st barth tomorrow „ how do I find you?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01909338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909338.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909338.pdf)
 
 ---
 
@@ -19858,7 +19858,7 @@ Look for a white whale who is desperstely trying to stand up on a surf board
 
 ... Or you can try my phone
 
-[PDF](../pdf/kronprinsessen/EFTA00642377.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642377.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00642377.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642377.pdf)
 
 ---
 
@@ -19874,7 +19874,7 @@ Look for a white whale who is desperstely trying to stand up on a surf board
 
 ... Or you can try my phone
 
-[PDF](../pdf/kronprinsessen/EFTA02010514.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010514.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02010514.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010514.pdf)
 
 ---
 
@@ -19890,7 +19890,7 @@ Look for a white whale who is desperstely trying to stand up on a surf board
 
 ... Or you can try my phone
 
-[PDF](../pdf/kronprinsessen/EFTA01910576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910576.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910576.pdf)
 
 ---
 
@@ -19924,7 +19924,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 
 ---
 
@@ -19958,7 +19958,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
+[PDF](../../pdf/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 
 ---
 
@@ -19986,7 +19986,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
 
 ---
 
@@ -20014,7 +20014,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
+[PDF](../../pdf/mette/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
 
 ---
 
@@ -20030,7 +20030,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
 
 ---
 
@@ -20046,7 +20046,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
+[PDF](../../pdf/mette/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
 
 ---
 
@@ -20080,7 +20080,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/kronprinsessen/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
 
 ---
 
@@ -20114,7 +20114,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/mette/EFTA00642433-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433-1.pdf)
+[PDF](../../pdf/mette/EFTA00642433-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433-1.pdf)
 
 ---
 
@@ -20148,7 +20148,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/mette/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
+[PDF](../../pdf/mette/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
 
 ---
 
@@ -20210,7 +20210,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01913175.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913175.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913175.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913175.pdf)
 
 ---
 
@@ -20272,7 +20272,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01913175.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913175.pdf)
+[PDF](../../pdf/mette/EFTA01913175.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913175.pdf)
 
 ---
 
@@ -20300,7 +20300,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
 
 ---
 
@@ -20328,7 +20328,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
+[PDF](../../pdf/mette/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
 
 ---
 
@@ -20344,7 +20344,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
 
 ---
 
@@ -20360,7 +20360,7 @@ i will be there from 10-13
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
+[PDF](../../pdf/mette/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
 
 ---
 
@@ -20406,7 +20406,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
 
@@ -20452,7 +20452,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
+[PDF](../../pdf/mette/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
 
@@ -20488,7 +20488,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
 
 ---
 
@@ -20524,7 +20524,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01912795-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795-1.pdf)
+[PDF](../../pdf/mette/EFTA01912795-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795-1.pdf)
 
 ---
 
@@ -20560,7 +20560,7 @@ Breakfast??
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
+[PDF](../../pdf/mette/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
 
 ---
 
@@ -20574,7 +20574,7 @@ Breakfast??
 
 I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
-[PDF](../pdf/kronprinsessen/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
 
 ---
 
@@ -20588,7 +20588,7 @@ I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
 I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
-[PDF](../pdf/mette/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
+[PDF](../../pdf/mette/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
 
 ---
 
@@ -20602,7 +20602,7 @@ I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
 Boris if you stand me up on this one I will have a hit man sent your way
 
-[PDF](../pdf/kronprinsessen/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
 
 ---
 
@@ -20616,7 +20616,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
 Boris if you stand me up on this one I will have a hit man sent your way
 
-[PDF](../pdf/mette/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
+[PDF](../../pdf/mette/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
 
 ---
 
@@ -20630,7 +20630,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
 Breakfast??
 
-[PDF](../pdf/kronprinsessen/EFTA00951043.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951043.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951043.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951043.pdf)
 
 ---
 
@@ -20652,7 +20652,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/kronprinsessen/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
 
 ---
 
@@ -20674,7 +20674,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/mette/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
+[PDF](../../pdf/mette/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
 
 ---
 
@@ -20712,7 +20712,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/kronprinsessen/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
 
 ---
 
@@ -20750,7 +20750,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/mette/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
+[PDF](../../pdf/mette/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
 
 ---
 
@@ -20800,7 +20800,7 @@ EFTA_R1_00348232
 
 EFTA01910260
 
-[PDF](../pdf/kronprinsessen/EFTA01910260.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910260.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910260.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910260.pdf)
 
 ---
 
@@ -20814,7 +20814,7 @@ EFTA01910260
 
 Boris I leave on the lithium
 
-[PDF](../pdf/kronprinsessen/EFTA00951041.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951041.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951041.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951041.pdf)
 
 ---
 
@@ -20828,7 +20828,7 @@ Boris I leave on the lithium
 
 Boris I leave on the lithium
 
-[PDF](../pdf/kronprinsessen/EFTA01803775.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01803775.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01803775.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01803775.pdf)
 
 ---
 
@@ -20842,7 +20842,7 @@ Boris I leave on the lithium
 
 ok with me
 
-[PDF](../pdf/kronprinsessen/EFTA00951037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951037.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00951037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951037.pdf)
 
 ---
 
@@ -20858,7 +20858,7 @@ Pls lets plan 11th as it seems that my announcement and a board mtg is on 10th. 
 
 10th.
 
-[PDF](../pdf/kronprinsessen/EFTA00718461.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00718461.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00718461.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00718461.pdf)
 
 ---
 
@@ -20872,7 +20872,7 @@ Pls lets plan 11th as it seems that my announcement and a board mtg is on 10th. 
 
 ok with me
 
-[PDF](../pdf/kronprinsessen/EFTA01909401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909401.pdf)
 
 ---
 
@@ -20888,7 +20888,7 @@ Pls lets plan 11th as it seems that my announcement and a board mtg is on 10th. 
 
 arrive to pb on 10th.
 
-[PDF](../pdf/kronprinsessen/EFTA01909194.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909194.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909194.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909194.pdf)
 
 ---
 
@@ -20968,7 +20968,7 @@ EFTA02039020
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02039019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02039019.pdf)
+[PDF](../../pdf/mette/EFTA02039019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02039019.pdf)
 
 ---
 
@@ -20982,7 +20982,7 @@ EFTA02039020
 
 shooitng for dinner together the lOth in pb
 
-[PDF](../pdf/kronprinsessen/EFTA00950996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950996.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950996.pdf)
 
 ---
 
@@ -20996,7 +20996,7 @@ shooitng for dinner together the lOth in pb
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02564089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564089.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02564089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564089.pdf)
 
 ---
 
@@ -21010,7 +21010,7 @@ shooitng for dinner together the lOth in pb
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910934.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910934.pdf)
 
 ---
 
@@ -21028,7 +21028,7 @@ See you sat !
 
 I'll check with h if it works to fly back with you sat if not we'll find another day
 
-[PDF](../pdf/kronprinsessen/EFTA00950904.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950904.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950904.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950904.pdf)
 
 ---
 
@@ -21044,7 +21044,7 @@ hopefully , and if you want you and husband can fly back with us sat eyeing or c
 
 >
 
-[PDF](../pdf/kronprinsessen/EFTA00950895.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950895.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950895.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950895.pdf)
 
 ---
 
@@ -21058,7 +21058,7 @@ hopefully , and if you want you and husband can fly back with us sat eyeing or c
 
 Great will I see you????
 
-[PDF](../pdf/kronprinsessen/EFTA00692655.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692655.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692655.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692655.pdf)
 
 ---
 
@@ -21072,7 +21072,7 @@ Great will I see you????
 
 will fly to st barth sat
 
-[PDF](../pdf/kronprinsessen/EFTA00950887.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950887.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950887.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950887.pdf)
 
 ---
 
@@ -21086,7 +21086,7 @@ will fly to st barth sat
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02035486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035486.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02035486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035486.pdf)
 
 ---
 
@@ -21100,7 +21100,7 @@ will fly to st barth sat
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913808.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913808.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913808.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913808.pdf)
 
 ---
 
@@ -21114,7 +21114,7 @@ will fly to st barth sat
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913497.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913497.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913497.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913497.pdf)
 
 ---
 
@@ -21132,7 +21132,7 @@ Martin Novak arriving 27th-still planned
 
 Brice M Gordon
 
-[PDF](../pdf/mette/EFTA00398748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398748.pdf)
+[PDF](../../pdf/mette/EFTA00398748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398748.pdf)
 
 ---
 
@@ -21150,7 +21150,7 @@ Martin Novak arriving 27th-still planned
 
 Brice M Gordon
 
-[PDF](../pdf/mette/EFTA00646395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646395.pdf)
+[PDF](../../pdf/mette/EFTA00646395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646395.pdf)
 
 ---
 
@@ -21168,7 +21168,7 @@ Martin Novak arriving 27th-still planned
 
 Brice M Gordon
 
-[PDF](../pdf/mette/EFTA02354550.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02354550.pdf)
+[PDF](../../pdf/mette/EFTA02354550.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02354550.pdf)
 
 ---
 
@@ -21186,7 +21186,7 @@ Martin Novak arriving 27th-still planned
 
 Brice M Gordon
 
-[PDF](../pdf/mette/EFTA01910101.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910101.pdf)
+[PDF](../../pdf/mette/EFTA01910101.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910101.pdf)
 
 ---
 
@@ -21200,7 +21200,7 @@ Brice M Gordon
 
 ok
 
-[PDF](../pdf/mette/EFTA00646382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646382.pdf)
+[PDF](../../pdf/mette/EFTA00646382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646382.pdf)
 
 ---
 
@@ -21216,7 +21216,7 @@ proposed schedule, rubenstein 26, gergen on 28th lsj st barth 29, musk 30 overni
 
 princess mette 3 lsj st barth 4 ,. Isj- pb 10, pb -ny demo inglisas plane ? 12, 17 slayton karyna test, 19 paris.
 
-[PDF](../pdf/mette/EFTA00398747.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398747.pdf)
+[PDF](../../pdf/mette/EFTA00398747.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398747.pdf)
 
 ---
 
@@ -21230,7 +21230,7 @@ princess mette 3 lsj st barth 4 ,. Isj- pb 10, pb -ny demo inglisas plane ? 12, 
 
 ok
 
-[PDF](../pdf/mette/EFTA01909758.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909758.pdf)
+[PDF](../../pdf/mette/EFTA01909758.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909758.pdf)
 
 ---
 
@@ -21244,7 +21244,7 @@ ok
 
 
 
-[PDF](../pdf/mette/EFTA02564009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564009.pdf)
+[PDF](../../pdf/mette/EFTA02564009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564009.pdf)
 
 ---
 
@@ -21258,7 +21258,7 @@ ok
 
 
 
-[PDF](../pdf/mette/EFTA01908928.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908928.pdf)
+[PDF](../../pdf/mette/EFTA01908928.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908928.pdf)
 
 ---
 
@@ -21272,7 +21272,7 @@ ok
 
 And pb?
 
-[PDF](../pdf/kronprinsessen/EFTA01909190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909190.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909190.pdf)
 
 ---
 
@@ -21286,7 +21286,7 @@ And pb?
 
 Pll write email with details today
 
-[PDF](../pdf/kronprinsessen/EFTA00876153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876153.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00876153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876153.pdf)
 
 ---
 
@@ -21300,7 +21300,7 @@ Pll write email with details today
 
 st barths?
 
-[PDF](../pdf/kronprinsessen/EFTA00876147.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876147.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00876147.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876147.pdf)
 
 ---
 
@@ -21318,7 +21318,7 @@ Den 24. des. 2012 Id. 13:44 skrev jeffrey epstein :
 
 And pb?
 
-[PDF](../pdf/kronprinsessen/EFTA01909321.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909321.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909321.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909321.pdf)
 
 ---
 
@@ -21336,7 +21336,7 @@ Den 24. des. 2012 Id. 13:44 skrev jeffrey epstein :
 
 And pb?
 
-[PDF](../pdf/kronprinsessen/EFTA01909236.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909236.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909236.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909236.pdf)
 
 ---
 
@@ -21354,7 +21354,7 @@ Den 24. des. 2012 Id. 12:18 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 st barths?
 
-[PDF](../pdf/kronprinsessen/EFTA01909109.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909109.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01909109.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909109.pdf)
 
 ---
 
@@ -21368,7 +21368,7 @@ st barths?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01914040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914040.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01914040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914040.pdf)
 
 ---
 
@@ -21382,7 +21382,7 @@ st barths?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01912053.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912053.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912053.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912053.pdf)
 
 ---
 
@@ -21396,7 +21396,7 @@ st barths?
 
 whoops
 
-[PDF](../pdf/kronprinsessen/EFTA00875978.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875978.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875978.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875978.pdf)
 
 ---
 
@@ -21410,7 +21410,7 @@ whoops
 
 Im in the hospital for test... Not feeling better ..
 
-[PDF](../pdf/kronprinsessen/EFTA00875977.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875977.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875977.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875977.pdf)
 
 ---
 
@@ -21424,7 +21424,7 @@ Im in the hospital for test... Not feeling better ..
 
 the weather is beautiful here
 
-[PDF](../pdf/kronprinsessen/EFTA00875973.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875973.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00875973.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00875973.pdf)
 
 ---
 
@@ -21440,7 +21440,7 @@ whoops
 
 On Fri, Dec 21, 2012 at 7:10 AM, H.K.H. Kronprinsessaa vrote:
 
-[PDF](../pdf/kronprinsessen/EFTA01911934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911934.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911934.pdf)
 
 ---
 
@@ -21456,7 +21456,7 @@ Den 21. des. 2012 Id. 11:52 slcrev Jeffrey Epstein leevacation@gmail.com>:
 
 the weather is beautiful here
 
-[PDF](../pdf/kronprinsessen/EFTA01911814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911814.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911814.pdf)
 
 ---
 
@@ -21470,7 +21470,7 @@ the weather is beautiful here
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01911604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911604.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01911604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911604.pdf)
 
 ---
 
@@ -21484,7 +21484,7 @@ the weather is beautiful here
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910205.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910205.pdf)
 
 ---
 
@@ -21500,7 +21500,7 @@ no, mesage re palm beach if ou could email her directly and cooridnate with sara
 
 beach trip. sarah
 
-[PDF](../pdf/kronprinsessen/EFTA01910569.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910569.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910569.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910569.pdf)
 
 ---
 
@@ -21514,7 +21514,7 @@ beach trip. sarah
 
 sue,
 
-[PDF](../pdf/kronprinsessen/EFTA00950340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950340.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950340.pdf)
 
 ---
 
@@ -21528,7 +21528,7 @@ sue,
 
 358 el brillo , palm ebach 33480
 
-[PDF](../pdf/kronprinsessen/EFTA00950339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950339.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950339.pdf)
 
 ---
 
@@ -21542,7 +21542,7 @@ sue,
 
 palm beach? sue/
 
-[PDF](../pdf/kronprinsessen/EFTA00950787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950787.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950787.pdf)
 
 ---
 
@@ -21556,7 +21556,7 @@ palm beach? sue/
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913489.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913489.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913489.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913489.pdf)
 
 ---
 
@@ -21570,7 +21570,7 @@ palm beach? sue/
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913439.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913439.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913439.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913439.pdf)
 
 ---
 
@@ -21586,7 +21586,7 @@ Got in touch with sue...
 
 Getting back to Sarah ... Will u call me?
 
-[PDF](../pdf/kronprinsessen/EFTA01913402.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913402.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913402.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913402.pdf)
 
 ---
 
@@ -21600,7 +21600,7 @@ Getting back to Sarah ... Will u call me?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01913240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913240.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913240.pdf)
 
 ---
 
@@ -21634,7 +21634,7 @@ Cc:
 
 no, mesa e re alm beach, if you could email her directly and cooridnate with your palm beach trip.
 
-[PDF](../pdf/kronprinsessen/EFTA00557597.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00557597.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00557597.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00557597.pdf)
 
 ---
 
@@ -21668,7 +21668,7 @@ Cc:
 
 no, mesage re palm beach„ if you could email her directly and =ooridnate with IIIIIII your palm beach trip.
 
-[PDF](../pdf/kronprinsessen/EFTA02317459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02317459.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02317459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02317459.pdf)
 
 ---
 
@@ -21682,7 +21682,7 @@ no, mesage re palm beach„ if you could email her directly and =ooridnate with 
 
 Will do... How is life ??
 
-[PDF](../pdf/kronprinsessen/EFTA00701078.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701078.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701078.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701078.pdf)
 
 ---
 
@@ -21696,7 +21696,7 @@ Will do... How is life ??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00950046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950046.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950046.pdf)
 
 ---
 
@@ -21710,7 +21710,7 @@ Will do... How is life ??
 
 no, mesa e re palm beach, if you could email her directly and cooridnate with your palm beach trip.
 
-[PDF](../pdf/kronprinsessen/EFTA00557450.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00557450.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00557450.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00557450.pdf)
 
 ---
 
@@ -21728,7 +21728,7 @@ Love did u get my phone message re palm beach
 
 Tried to call you
 
-[PDF](../pdf/kronprinsessen/EFTA00701075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701075.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701075.pdf)
 
 ---
 
@@ -21742,7 +21742,7 @@ Tried to call you
 
 Will do... How is life ??
 
-[PDF](../pdf/kronprinsessen/EFTA01762234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762234.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762234.pdf)
 
 ---
 
@@ -21756,7 +21756,7 @@ Will do... How is life ??
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01910475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910475.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01910475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910475.pdf)
 
 ---
 
@@ -21778,7 +21778,7 @@ EFTA_R1_01727132
 
 EFTA02563785
 
-[PDF](../pdf/mette/EFTA02563785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563785.pdf)
+[PDF](../../pdf/mette/EFTA02563785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563785.pdf)
 
 ---
 
@@ -21792,7 +21792,7 @@ EFTA02563785
 
 cute outfit at ceremony
 
-[PDF](../pdf/kronprinsessen/EFTA00950139.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950139.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00950139.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950139.pdf)
 
 ---
 
@@ -21806,7 +21806,7 @@ cute outfit at ceremony
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01914368.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914368.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01914368.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914368.pdf)
 
 ---
 
@@ -21820,7 +21820,7 @@ cute outfit at ceremony
 
 Called u today
 
-[PDF](../pdf/kronprinsessen/EFTA01764923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764923.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764923.pdf)
 
 ---
 
@@ -21834,7 +21834,7 @@ Called u today
 
 we should firm up palm beach trip. ,
 
-[PDF](../pdf/kronprinsessen/EFTA00949540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949540.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949540.pdf)
 
 ---
 
@@ -21848,7 +21848,7 @@ we should firm up palm beach trip. ,
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01912369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912369.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912369.pdf)
 
 ---
 
@@ -21862,7 +21862,7 @@ we should firm up palm beach trip. ,
 
 Called u today
 
-[PDF](../pdf/kronprinsessen/EFTA00646552.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646552.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00646552.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646552.pdf)
 
 ---
 
@@ -21876,7 +21876,7 @@ Called u today
 
 hamesss the energy of the fire, it can power many things, . don't let it burn down your life
 
-[PDF](../pdf/kronprinsessen/EFTA00949876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949876.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949876.pdf)
 
 ---
 
@@ -21890,7 +21890,7 @@ hamesss the energy of the fire, it can power many things, . don't let it burn do
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01912814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912814.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912814.pdf)
 
 ---
 
@@ -21904,7 +21904,7 @@ hamesss the energy of the fire, it can power many things, . don't let it burn do
 
 Sony trying on dresses : ) princess work :)
 
-[PDF](../pdf/kronprinsessen/EFTA00646394.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646394.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00646394.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646394.pdf)
 
 ---
 
@@ -21922,7 +21922,7 @@ Den 6. des. 2012 Id. 13:38 skrev Jeffrey Epstein :
 
 we arc going houseware shopping , want to come. ?
 
-[PDF](../pdf/kronprinsessen/EFTA01914011.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914011.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01914011.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914011.pdf)
 
 ---
 
@@ -21936,7 +21936,7 @@ we arc going houseware shopping , want to come. ?
 
 we are going houseware shopping , want to come. ?
 
-[PDF](../pdf/kronprinsessen/EFTA00949789.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949789.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949789.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949789.pdf)
 
 ---
 
@@ -21950,7 +21950,7 @@ we are going houseware shopping , want to come. ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01912239.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912239.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01912239.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912239.pdf)
 
 ---
 
@@ -21966,7 +21966,7 @@ Thank you my friend
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00949733.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949733.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949733.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949733.pdf)
 
 ---
 
@@ -21982,7 +21982,7 @@ Be well
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00949723.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949723.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949723.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949723.pdf)
 
 ---
 
@@ -21996,7 +21996,7 @@ Be well
 
 I will probably leave Tomonv night if the rain continues
 
-[PDF](../pdf/kronprinsessen/EFTA00949714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949714.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949714.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949714.pdf)
 
 ---
 
@@ -22010,7 +22010,7 @@ I will probably leave Tomonv night if the rain continues
 
 Thx
 
-[PDF](../pdf/kronprinsessen/EFTA00949711.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949711.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949711.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949711.pdf)
 
 ---
 
@@ -22024,7 +22024,7 @@ Thx
 
 Sony
 
-[PDF](../pdf/kronprinsessen/EFTA00949707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949707.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949707.pdf)
 
 ---
 
@@ -22040,7 +22040,7 @@ I will probably leave Tomorw night if the rain continues
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01975760.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975760.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975760.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975760.pdf)
 
 ---
 
@@ -22054,7 +22054,7 @@ I will probably leave Tomorw night if the rain continues
 
 Thx
 
-[PDF](../pdf/kronprinsessen/EFTA01975689.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975689.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975689.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975689.pdf)
 
 ---
 
@@ -22068,7 +22068,7 @@ Thx
 
 Sorry
 
-[PDF](../pdf/kronprinsessen/EFTA01975600.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975600.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975600.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975600.pdf)
 
 ---
 
@@ -22084,7 +22084,7 @@ Believe me its not!!!
 
 What a f.... mess
 
-[PDF](../pdf/kronprinsessen/EFTA00647319.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00647319.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00647319.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00647319.pdf)
 
 ---
 
@@ -22100,7 +22100,7 @@ Believe me its not!!!
 
 What a f... mess
 
-[PDF](../pdf/kronprinsessen/EFTA01975115.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975115.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975115.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975115.pdf)
 
 ---
 
@@ -22114,7 +22114,7 @@ What a f... mess
 
 Im embedded : )
 
-[PDF](../pdf/kronprinsessen/EFTA00646589.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646589.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00646589.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646589.pdf)
 
 ---
 
@@ -22128,7 +22128,7 @@ Im embedded : )
 
 Sounds like fun
 
-[PDF](../pdf/kronprinsessen/EFTA01974091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974091.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01974091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974091.pdf)
 
 ---
 
@@ -22146,7 +22146,7 @@ Den 5. des. 2012 Id. 16:24 skrev Jeffrey Epstein :
 
 you did not respond, i will be free now after 21 30
 
-[PDF](../pdf/kronprinsessen/EFTA01973583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973583.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01973583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973583.pdf)
 
 ---
 
@@ -22160,7 +22160,7 @@ you did not respond, i will be free now after 21 30
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01973407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973407.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01973407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973407.pdf)
 
 ---
 
@@ -22174,7 +22174,7 @@ you did not respond, i will be free now after 21 30
 
 http://www.spaethcom.com/bios-detail.php?id=1 as promised . call merry and use my name
 
-[PDF](../pdf/kronprinsessen/EFTA00949679.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949679.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949679.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949679.pdf)
 
 ---
 
@@ -22188,7 +22188,7 @@ http://www.spaethcom.com/bios-detail.php?id=1 as promised . call merry and use m
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01977698.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977698.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977698.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977698.pdf)
 
 ---
 
@@ -22202,7 +22202,7 @@ http://www.spaethcom.com/bios-detail.php?id=1 as promised . call merry and use m
 
 i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestrian
 
-[PDF](../pdf/kronprinsessen/EFTA00949667.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949667.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949667.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949667.pdf)
 
 ---
 
@@ -22218,7 +22218,7 @@ Yikes do not know yet
 
 Long night of mourning
 
-[PDF](../pdf/kronprinsessen/EFTA00949659.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949659.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949659.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949659.pdf)
 
 ---
 
@@ -22232,7 +22232,7 @@ Long night of mourning
 
 what are todays plans
 
-[PDF](../pdf/kronprinsessen/EFTA00949657.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949657.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949657.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949657.pdf)
 
 ---
 
@@ -22246,7 +22246,7 @@ what are todays plans
 
 i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestrian
 
-[PDF](../pdf/kronprinsessen/EFTA01976742.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976742.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976742.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976742.pdf)
 
 ---
 
@@ -22260,7 +22260,7 @@ i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestr
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976548.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976548.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976548.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976548.pdf)
 
 ---
 
@@ -22274,7 +22274,7 @@ i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestr
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976415.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976415.pdf)
 
 ---
 
@@ -22288,7 +22288,7 @@ i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestr
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00948569.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948569.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00948569.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948569.pdf)
 
 ---
 
@@ -22302,7 +22302,7 @@ i want to go shopping, for housewares bon marche ? 15 30 ? very ordinary pedestr
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01975692.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975692.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975692.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975692.pdf)
 
 ---
 
@@ -22318,7 +22318,7 @@ what time.. come tonight?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00949155.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949155.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949155.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949155.pdf)
 
 ---
 
@@ -22334,7 +22334,7 @@ what time.. come tonight?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01977269.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977269.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977269.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977269.pdf)
 
 ---
 
@@ -22348,7 +22348,7 @@ what time.. come tonight?
 
 Land tonight
 
-[PDF](../pdf/kronprinsessen/EFTA01977191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977191.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977191.pdf)
 
 ---
 
@@ -22362,7 +22362,7 @@ Land tonight
 
 Are you here
 
-[PDF](../pdf/kronprinsessen/EFTA01976964.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976964.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976964.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976964.pdf)
 
 ---
 
@@ -22380,7 +22380,7 @@ Den 4. des. 2012 Id. 12:35 skrev Jeffrey Epstein :
 
 plans arc never known
 
-[PDF](../pdf/kronprinsessen/EFTA01976759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976759.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976759.pdf)
 
 ---
 
@@ -22394,7 +22394,7 @@ plans arc never known
 
 plans are never known
 
-[PDF](../pdf/kronprinsessen/EFTA01976351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976351.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976351.pdf)
 
 ---
 
@@ -22440,7 +22440,7 @@ this...I'm sure Jeffrey wants you there if it is possible! Thanks, Lesley
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA02154109.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154109.pdf)
+[PDF](../../pdf/kpm/EFTA02154109.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154109.pdf)
 
 ---
 
@@ -22496,7 +22496,7 @@ EFTA_R1_01725429
 
 EFTA02562992
 
-[PDF](../pdf/kronprinsessen/EFTA02562992.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562992.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02562992.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562992.pdf)
 
 ---
 
@@ -22516,7 +22516,7 @@ there if it is possible! Thanks,
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA00400459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400459.pdf)
+[PDF](../../pdf/kpm/EFTA00400459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400459.pdf)
 
 ---
 
@@ -22534,7 +22534,7 @@ EFTA_R1_00820505
 
 EFTA02154467
 
-[PDF](../pdf/mette/EFTA02154467.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154467.pdf)
+[PDF](../../pdf/mette/EFTA02154467.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154467.pdf)
 
 ---
 
@@ -22558,7 +22558,7 @@ Subject: Re: Fwd:
 
 parsi available in tthree hours
 
-[PDF](../pdf/mette/EFTA00948985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948985.pdf)
+[PDF](../../pdf/mette/EFTA00948985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948985.pdf)
 
 ---
 
@@ -22574,7 +22574,7 @@ parsi available in tthree hours
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00948975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948975.pdf)
+[PDF](../../pdf/mette/EFTA00948975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948975.pdf)
 
 ---
 
@@ -22600,7 +22600,7 @@ parsi available in [three hours
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01974050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974050.pdf)
+[PDF](../../pdf/mette/EFTA01974050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974050.pdf)
 
 ---
 
@@ -22676,7 +22676,7 @@ when will you get feedback on worlkd bank, if they decline what is plan
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01973501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973501.pdf)
+[PDF](../../pdf/mette/EFTA01973501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973501.pdf)
 
 ---
 
@@ -22706,7 +22706,7 @@ Subject: Re:
 
 I'm in Paris
 
-[PDF](../pdf/mette/EFTA00948947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948947.pdf)
+[PDF](../../pdf/mette/EFTA00948947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948947.pdf)
 
 ---
 
@@ -22720,7 +22720,7 @@ I'm in Paris
 
 I'm in Paris 33144170210
 
-[PDF](../pdf/mette/EFTA01975457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975457.pdf)
+[PDF](../../pdf/mette/EFTA01975457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975457.pdf)
 
 ---
 
@@ -22758,7 +22758,7 @@ Sent: Fri, Nov 30. 2012 1:00 pm
 
 when will you get feedback on worlkd bank, if they decline what is plan
 
-[PDF](../pdf/mette/EFTA00671610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671610.pdf)
+[PDF](../../pdf/mette/EFTA00671610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671610.pdf)
 
 ---
 
@@ -22796,7 +22796,7 @@ Sent: Fri, Nov 30, 2012 1:00 pm
 
 when will you get feedback on worlkd bank, if they decline what is plan
 
-[PDF](../pdf/mette/EFTA01975217.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975217.pdf)
+[PDF](../../pdf/mette/EFTA01975217.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975217.pdf)
 
 ---
 
@@ -22834,7 +22834,7 @@ Sent: En, Nov 30, 2012 1:00 pm
 
 when will you get feedback on worlkd bank, if they decline = what is plan
 
-[PDF](../pdf/mette/EFTA02371409.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371409.pdf)
+[PDF](../../pdf/mette/EFTA02371409.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371409.pdf)
 
 ---
 
@@ -22858,7 +22858,7 @@ See you in Paris my friend
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA00701306.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701306.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701306.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701306.pdf)
 
 ---
 
@@ -22882,7 +22882,7 @@ See you in Paris my friend
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA01761770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761770.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01761770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761770.pdf)
 
 ---
 
@@ -22912,7 +22912,7 @@ Subject:
 
 how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark.
 
-[PDF](../pdf/mette/EFTA00701108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701108.pdf)
+[PDF](../../pdf/mette/EFTA00701108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701108.pdf)
 
 ---
 
@@ -22942,7 +22942,7 @@ Subject:
 
 how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark,
 
-[PDF](../pdf/mette/EFTA02722801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02722801.pdf)
+[PDF](../../pdf/mette/EFTA02722801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02722801.pdf)
 
 ---
 
@@ -22978,7 +22978,7 @@ Subject:
 
 how did it go with bi=l yesterday„ mette and i just walked in a park zero degrees, and da=k,
 
-[PDF](../pdf/mette/EFTA01762233.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762233.pdf)
+[PDF](../../pdf/mette/EFTA01762233.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762233.pdf)
 
 ---
 
@@ -22992,7 +22992,7 @@ how did it go with bi=l yesterday„ mette and i just walked in a park zero degr
 
 
 
-[PDF](../pdf/mette/EFTA01976145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976145.pdf)
+[PDF](../../pdf/mette/EFTA01976145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976145.pdf)
 
 ---
 
@@ -23006,7 +23006,7 @@ how did it go with bi=l yesterday„ mette and i just walked in a park zero degr
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976112.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976112.pdf)
 
 ---
 
@@ -23022,7 +23022,7 @@ Ok
 
 Sony for all the typos .
 
-[PDF](../pdf/kronprinsessen/EFTA00671581.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671581.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00671581.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671581.pdf)
 
 ---
 
@@ -23038,7 +23038,7 @@ Ok
 
 Sorry for all the typos .
 
-[PDF](../pdf/kronprinsessen/EFTA01764639.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764639.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764639.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764639.pdf)
 
 ---
 
@@ -23052,7 +23052,7 @@ Sorry for all the typos .
 
 My Osteo is late so closer to six thirty
 
-[PDF](../pdf/kronprinsessen/EFTA02038398.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02038398.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02038398.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02038398.pdf)
 
 ---
 
@@ -23066,7 +23066,7 @@ My Osteo is late so closer to six thirty
 
 My Osteo is late so closer to six thirty
 
-[PDF](../pdf/kronprinsessen/EFTA01765650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765650.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765650.pdf)
 
 ---
 
@@ -23084,7 +23084,7 @@ Subject:
 
 how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark,
 
-[PDF](../pdf/mette/EFTA01974337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974337.pdf)
+[PDF](../../pdf/mette/EFTA01974337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974337.pdf)
 
 ---
 
@@ -23098,7 +23098,7 @@ how did it go with bill yesterday„ mette and i just walked in a park zero degr
 
 Call me!!!
 
-[PDF](../pdf/kronprinsessen/EFTA00949351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949351.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949351.pdf)
 
 ---
 
@@ -23112,7 +23112,7 @@ Call me!!!
 
 Call me!!!
 
-[PDF](../pdf/kronprinsessen/EFTA01762509.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762509.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762509.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762509.pdf)
 
 ---
 
@@ -23148,7 +23148,7 @@ EFTA_R1_00819546
 
 EFTA02153792
 
-[PDF](../pdf/mette/EFTA02153792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153792.pdf)
+[PDF](../../pdf/mette/EFTA02153792.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153792.pdf)
 
 ---
 
@@ -23218,7 +23218,7 @@ EFTA_R1_00512545
 
 EFTA02011076
 
-[PDF](../pdf/mette/EFTA02011075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02011075.pdf)
+[PDF](../../pdf/mette/EFTA02011075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02011075.pdf)
 
 ---
 
@@ -23232,7 +23232,7 @@ EFTA02011076
 
 I should be at the continental tomorow night. you?
 
-[PDF](../pdf/kronprinsessen/EFTA00949324.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949324.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00949324.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949324.pdf)
 
 ---
 
@@ -23246,7 +23246,7 @@ I should be at the continental tomorow night. you?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976449.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976449.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976449.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976449.pdf)
 
 ---
 
@@ -23280,7 +23280,7 @@ EFTA_R1_00819362
 
 EFTA02153631
 
-[PDF](../pdf/mette/EFTA02153631.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153631.pdf)
+[PDF](../../pdf/mette/EFTA02153631.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02153631.pdf)
 
 ---
 
@@ -23328,7 +23328,7 @@ EFTA_R1_00527920
 
 EFTA02021912
 
-[PDF](../pdf/mette/EFTA02021912.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021912.pdf)
+[PDF](../../pdf/mette/EFTA02021912.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021912.pdf)
 
 ---
 
@@ -23352,7 +23352,7 @@ has those.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00400678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400678.pdf)
+[PDF](../../pdf/mette/EFTA00400678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400678.pdf)
 
 ---
 
@@ -23442,7 +23442,7 @@ EFTA_R1_00820823
 
 EFTA02154708
 
-[PDF](../pdf/mette/EFTA02154707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)
+[PDF](../../pdf/mette/EFTA02154707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)
 
 ---
 
@@ -23516,7 +23516,7 @@ E FTA_R1_02204889
 
 EFTA02721065
 
-[PDF](../pdf/mette/EFTA02721064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721064.pdf)
+[PDF](../../pdf/mette/EFTA02721064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721064.pdf)
 
 ---
 
@@ -23532,7 +23532,7 @@ wed night, jack lang. . thurs, oslo tenje, fri mette, sat stockho, bbb, lisa, lu
 
 fancelli, hermes, victoria,
 
-[PDF](../pdf/mette/EFTA00876270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876270.pdf)
+[PDF](../../pdf/mette/EFTA00876270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876270.pdf)
 
 ---
 
@@ -23548,7 +23548,7 @@ wed night,i•c tang. . thurs, oslo terje, fri mette, sat stockho, bbb, ? sun pa
 
 fancelli, hermes,
 
-[PDF](../pdf/mette/EFTA00400841.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400841.pdf)
+[PDF](../../pdf/mette/EFTA00400841.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400841.pdf)
 
 ---
 
@@ -23562,7 +23562,7 @@ fancelli, hermes,
 
 
 
-[PDF](../pdf/mette/EFTA01975630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975630.pdf)
+[PDF](../../pdf/mette/EFTA01975630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975630.pdf)
 
 ---
 
@@ -23576,7 +23576,7 @@ fancelli, hermes,
 
 see you friday, in oslo
 
-[PDF](../pdf/kronprinsessen/EFTA00876256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876256.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00876256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00876256.pdf)
 
 ---
 
@@ -23590,7 +23590,7 @@ see you friday, in oslo
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01974425.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974425.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01974425.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974425.pdf)
 
 ---
 
@@ -23604,7 +23604,7 @@ see you friday, in oslo
 
 I get home fri morning will u still be there?
 
-[PDF](../pdf/kronprinsessen/EFTA00948302.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948302.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00948302.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948302.pdf)
 
 ---
 
@@ -23618,7 +23618,7 @@ I get home fri morning will u still be there?
 
 I get home fri morning will u still be there?
 
-[PDF](../pdf/kronprinsessen/EFTA02026505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026505.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02026505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026505.pdf)
 
 ---
 
@@ -23632,7 +23632,7 @@ I get home fri morning will u still be there?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01975730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975730.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975730.pdf)
 
 ---
 
@@ -23646,7 +23646,7 @@ I get home fri morning will u still be there?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01977025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977025.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977025.pdf)
 
 ---
 
@@ -23660,7 +23660,7 @@ I get home fri morning will u still be there?
 
 any better?
 
-[PDF](../pdf/kronprinsessen/EFTA00948234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948234.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00948234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948234.pdf)
 
 ---
 
@@ -23678,7 +23678,7 @@ EFTA_R1_01725369
 
 EFTA02562946
 
-[PDF](../pdf/kronprinsessen/EFTA02562946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562946.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02562946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562946.pdf)
 
 ---
 
@@ -23692,7 +23692,7 @@ EFTA02562946
 
 good keep going and yes maybe
 
-[PDF](../pdf/kronprinsessen/EFTA00948386.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948386.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00948386.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948386.pdf)
 
 ---
 
@@ -23718,7 +23718,7 @@ U coming to see me?
 
 Finally turned grey during my massage
 
-[PDF](../pdf/kronprinsessen/EFTA00948385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948385.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00948385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948385.pdf)
 
 ---
 
@@ -23732,7 +23732,7 @@ Finally turned grey during my massage
 
 good keep going and yes maybe
 
-[PDF](../pdf/kronprinsessen/EFTA01979157.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979157.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979157.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979157.pdf)
 
 ---
 
@@ -23758,7 +23758,7 @@ U coming to see me?
 
 Finally turned grey during my massage
 
-[PDF](../pdf/kronprinsessen/EFTA01979029.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979029.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979029.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979029.pdf)
 
 ---
 
@@ -23772,7 +23772,7 @@ Finally turned grey during my massage
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01978810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978810.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01978810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978810.pdf)
 
 ---
 
@@ -23794,7 +23794,7 @@ I will now make an effort with shades of grey
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
 
 ---
 
@@ -23816,7 +23816,7 @@ I will now make an effort with shades of grey
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
+[PDF](../../pdf/kpm/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
 
 ---
 
@@ -23830,7 +23830,7 @@ I will now make an effort with shades of grey
 
 let them decide , mother shoudl stay out of it
 
-[PDF](../pdf/kronprinsessen/EFTA00947422.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947422.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947422.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947422.pdf)
 
 ---
 
@@ -23844,7 +23844,7 @@ let them decide , mother shoudl stay out of it
 
 And it's green.. No clue why
 
-[PDF](../pdf/kronprinsessen/EFTA00701446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701446.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701446.pdf)
 
 ---
 
@@ -23858,7 +23858,7 @@ And it's green.. No clue why
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01977816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977816.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977816.pdf)
 
 ---
 
@@ -23872,7 +23872,7 @@ And it's green.. No clue why
 
 U are very charming u know
 
-[PDF](../pdf/kronprinsessen/EFTA00701443.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701443.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701443.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701443.pdf)
 
 ---
 
@@ -23886,7 +23886,7 @@ U are very charming u know
 
 Is it inappropriate for a mother to suggest two naked women carrying a surfboard for my 15 yr old sons wallpaper ?
 
-[PDF](../pdf/kronprinsessen/EFTA01764363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764363.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764363.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764363.pdf)
 
 ---
 
@@ -23902,7 +23902,7 @@ Is it inappropriate for a mother to suggest two naked women carrying a surfboard
 
 old sons wallpaper ?
 
-[PDF](../pdf/kronprinsessen/EFTA02025537.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025537.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02025537.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025537.pdf)
 
 ---
 
@@ -23916,7 +23916,7 @@ old sons wallpaper ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976882.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976882.pdf)
 
 ---
 
@@ -23930,7 +23930,7 @@ old sons wallpaper ?
 
 And it's green.. No clue why
 
-[PDF](../pdf/kronprinsessen/EFTA02026173.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026173.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02026173.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026173.pdf)
 
 ---
 
@@ -23944,7 +23944,7 @@ And it's green.. No clue why
 
 ofcourse i know
 
-[PDF](../pdf/kronprinsessen/EFTA01976583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976583.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976583.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976583.pdf)
 
 ---
 
@@ -23962,7 +23962,7 @@ Den 13. nov. 2012 Id. 12:43 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 what color today
 
-[PDF](../pdf/kronprinsessen/EFTA02025124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025124.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02025124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025124.pdf)
 
 ---
 
@@ -23976,7 +23976,7 @@ what color today
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976201.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976201.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976201.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976201.pdf)
 
 ---
 
@@ -23990,7 +23990,7 @@ what color today
 
 Im very impressed with your new tech abilities.
 
-[PDF](../pdf/kronprinsessen/EFTA01762918.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762918.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762918.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762918.pdf)
 
 ---
 
@@ -24006,7 +24006,7 @@ EFTA_R1_00068108
 
 EFTA01762588
 
-[PDF](../pdf/kronprinsessen/EFTA01762588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762588.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762588.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762588.pdf)
 
 ---
 
@@ -24034,7 +24034,7 @@ Hasta la vista
 
 And swim lots for meeeeee
 
-[PDF](../pdf/kronprinsessen/EFTA00947874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947874.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947874.pdf)
 
 ---
 
@@ -24062,7 +24062,7 @@ Hasta la vista
 
 And swim lots for meeeeee
 
-[PDF](../pdf/kpm/EFTA00947874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947874.pdf)
+[PDF](../../pdf/kpm/EFTA00947874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947874.pdf)
 
 ---
 
@@ -24076,7 +24076,7 @@ And swim lots for meeeeee
 
 What's the name of the house in palm beach I'm making you a present
 
-[PDF](../pdf/kronprinsessen/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
 
 ---
 
@@ -24090,7 +24090,7 @@ What's the name of the house in palm beach I'm making you a present
 
 What's the name of the house in palm beach I'm making you a present
 
-[PDF](../pdf/kpm/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
+[PDF](../../pdf/kpm/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
 
 ---
 
@@ -24110,7 +24110,7 @@ Does not seem to come out of the nose tho So at lea=t I haven't turned into a dr
 
 lots for meeeeee
 
-[PDF](../pdf/kronprinsessen/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
 
 ---
 
@@ -24130,7 +24130,7 @@ Does not seem to come out of the nose tho So at lea=t I haven't turned into a dr
 
 lots for meeeeee
 
-[PDF](../pdf/kpm/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
+[PDF](../../pdf/kpm/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
 
 ---
 
@@ -24146,7 +24146,7 @@ Well at least now its green & yellow
 
 Doesnt seem like imporovement though
 
-[PDF](../pdf/kronprinsessen/EFTA02721055.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721055.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02721055.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02721055.pdf)
 
 ---
 
@@ -24162,7 +24162,7 @@ Well at least now its green & yellow
 
 Doesnt seem like imporovement though
 
-[PDF](../pdf/kronprinsessen/EFTA01763611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763611.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763611.pdf)
 
 ---
 
@@ -24178,7 +24178,7 @@ let the white mix with the red„ breath infor five, hold. mix„ for five out f
 
 noise like wind thru the trees, soft but to yourself.
 
-[PDF](../pdf/kronprinsessen/EFTA00947852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947852.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947852.pdf)
 
 ---
 
@@ -24194,7 +24194,7 @@ it will change„ give it time.. the intensity will dimish„ remember to breath
 
 become peaceful.
 
-[PDF](../pdf/kronprinsessen/EFTA00947851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947851.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947851.pdf)
 
 ---
 
@@ -24208,7 +24208,7 @@ become peaceful.
 
 There is only red coming out when i breathe?
 
-[PDF](../pdf/kronprinsessen/EFTA00701464.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701464.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701464.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701464.pdf)
 
 ---
 
@@ -24222,7 +24222,7 @@ There is only red coming out when i breathe?
 
 You r such a sweetheart
 
-[PDF](../pdf/kronprinsessen/EFTA00701462.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701462.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701462.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701462.pdf)
 
 ---
 
@@ -24238,7 +24238,7 @@ let the white mix with the red„ breath infor five, hold. mix„ for five out f
 
 make a shh000sh noise like wind thru the trees, soft but to yourself.
 
-[PDF](../pdf/kronprinsessen/EFTA01975670.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975670.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975670.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975670.pdf)
 
 ---
 
@@ -24252,7 +24252,7 @@ make a shh000sh noise like wind thru the trees, soft but to yourself.
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01975637.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975637.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01975637.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975637.pdf)
 
 ---
 
@@ -24268,7 +24268,7 @@ Hey still in bed pretty ferd up Edith dengue
 
 Can u call me today as I have question for you
 
-[PDF](../pdf/kpm/EFTA00701459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701459.pdf)
+[PDF](../../pdf/kpm/EFTA00701459.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701459.pdf)
 
 ---
 
@@ -24282,7 +24282,7 @@ Can u call me today as I have question for you
 
 You r such a sweetheart
 
-[PDF](../pdf/kronprinsessen/EFTA01763958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763958.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763958.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763958.pdf)
 
 ---
 
@@ -24296,7 +24296,7 @@ You r such a sweetheart
 
 how are you„ you sounded beat ? hope you are feeling better, st bans will be fun
 
-[PDF](../pdf/kronprinsessen/EFTA00947827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947827.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947827.pdf)
 
 ---
 
@@ -24310,7 +24310,7 @@ how are you„ you sounded beat ? hope you are feeling better, st bans will be f
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976610.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976610.pdf)
 
 ---
 
@@ -24328,7 +24328,7 @@ EFTA_R1_00508865
 
 EFTA02008444
 
-[PDF](../pdf/kronprinsessen/EFTA02008444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02008444.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02008444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02008444.pdf)
 
 ---
 
@@ -24344,7 +24344,7 @@ www.forbes.com/sites/henrymiller/2012/11/07/organic-agricultures-bitter-taste-or
 
 narcissism
 
-[PDF](../pdf/kronprinsessen/EFTA01762866.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762866.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01762866.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762866.pdf)
 
 ---
 
@@ -24366,7 +24366,7 @@ Just my luck
 
 Probably natural t000000
 
-[PDF](../pdf/kronprinsessen/EFTA01763067.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763067.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763067.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763067.pdf)
 
 ---
 
@@ -24382,7 +24382,7 @@ http://www.redorbit.com/news/video/health 2/1112723653/mushrooms-poisonous-11011
 
 MM.
 
-[PDF](../pdf/kronprinsessen/EFTA01978270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978270.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01978270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978270.pdf)
 
 ---
 
@@ -24398,7 +24398,7 @@ Jan 20 , Inauguration Day
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00947200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947200.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947200.pdf)
 
 ---
 
@@ -24414,7 +24414,7 @@ Jan 20 , Inauguration Day
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01980111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980111.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01980111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980111.pdf)
 
 ---
 
@@ -24446,7 +24446,7 @@ But for my calendar
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00947195.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947195.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947195.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947195.pdf)
 
 ---
 
@@ -24466,7 +24466,7 @@ Just like you
 
 Soft hearted
 
-[PDF](../pdf/kronprinsessen/EFTA00947193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947193.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947193.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947193.pdf)
 
 ---
 
@@ -24482,7 +24482,7 @@ And for gods sake find yourself a decorating wife
 
 Otherwise you'll go nutz
 
-[PDF](../pdf/kronprinsessen/EFTA00947191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947191.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947191.pdf)
 
 ---
 
@@ -24512,7 +24512,7 @@ But I guess that would be la la land great
 
 We can just design them in a lab
 
-[PDF](../pdf/kronprinsessen/EFTA00947189.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947189.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947189.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947189.pdf)
 
 ---
 
@@ -24526,7 +24526,7 @@ We can just design them in a lab
 
 i prfefer you way . you are right.. I like looking at sharks but only through glass
 
-[PDF](../pdf/kronprinsessen/EFTA00947187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947187.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947187.pdf)
 
 ---
 
@@ -24548,7 +24548,7 @@ anti -biotics , are exactly that, things that kill natural organisms, . i hope y
 
 to live inthe land of make believe, me too
 
-[PDF](../pdf/kronprinsessen/EFTA00947185.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947185.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947185.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947185.pdf)
 
 ---
 
@@ -24566,7 +24566,7 @@ Than me I'm sure you can find data to prove your point
 
 But I however chose to look at nature in a friendly was like they picture I will now forward
 
-[PDF](../pdf/kronprinsessen/EFTA00947183.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947183.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947183.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947183.pdf)
 
 ---
 
@@ -24582,7 +24582,7 @@ This article is from 1998 Jeffrey
 
 Newer data available?
 
-[PDF](../pdf/kronprinsessen/EFTA00947181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947181.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947181.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947181.pdf)
 
 ---
 
@@ -24598,7 +24598,7 @@ And I might be done now
 
 But I'm not sure ....
 
-[PDF](../pdf/kronprinsessen/EFTA00947178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947178.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947178.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947178.pdf)
 
 ---
 
@@ -24612,7 +24612,7 @@ But I'm not sure ....
 
 Sony my mistake phosphorous not potassium
 
-[PDF](../pdf/kronprinsessen/EFTA00947176.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947176.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947176.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947176.pdf)
 
 ---
 
@@ -24626,7 +24626,7 @@ Sony my mistake phosphorous not potassium
 
 And what was this ?
 
-[PDF](../pdf/kronprinsessen/EFTA00947172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947172.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947172.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947172.pdf)
 
 ---
 
@@ -24656,7 +24656,7 @@ Hence the dollar bill is mine
 
 Muchos gracias
 
-[PDF](../pdf/kronprinsessen/EFTA00947171.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947171.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947171.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947171.pdf)
 
 ---
 
@@ -24688,7 +24688,7 @@ But for my calendar
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01765359.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765359.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765359.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765359.pdf)
 
 ---
 
@@ -24710,7 +24710,7 @@ Soft hearted
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01765315.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765315.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765315.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765315.pdf)
 
 ---
 
@@ -24728,7 +24728,7 @@ Otherwise you'll go nutz
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01765289.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765289.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765289.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765289.pdf)
 
 ---
 
@@ -24758,7 +24758,7 @@ We can just design them in a lab
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01765256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765256.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765256.pdf)
 
 ---
 
@@ -24772,7 +24772,7 @@ We can just design them in a lab
 
 i prfefer you way . you are right.. I like looking at sharks but only through glass
 
-[PDF](../pdf/kronprinsessen/EFTA01979858.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979858.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979858.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979858.pdf)
 
 ---
 
@@ -24786,7 +24786,7 @@ i prfefer you way . you are right.. I like looking at sharks but only through gl
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01979761.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979761.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979761.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979761.pdf)
 
 ---
 
@@ -24806,7 +24806,7 @@ EFTA_R1_00073098
 
 EFTA01765222
 
-[PDF](../pdf/kronprinsessen/EFTA01765222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765222.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765222.pdf)
 
 ---
 
@@ -24822,7 +24822,7 @@ This article is from 1998 Jeffrey
 
 Newer data available?
 
-[PDF](../pdf/kronprinsessen/EFTA01765163.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765163.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765163.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765163.pdf)
 
 ---
 
@@ -24836,7 +24836,7 @@ Newer data available?
 
 http://www.hudson.org/index.cfm?fuseaction=oublication details&id6
 
-[PDF](../pdf/kronprinsessen/EFTA01979637.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979637.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979637.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979637.pdf)
 
 ---
 
@@ -24854,7 +24854,7 @@ But I'm not sure ....
 
 Den 1. nov. 2012 Id. 20:01 skrev Jeffrey Epstein
 
-[PDF](../pdf/kronprinsessen/EFTA01765125.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765125.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765125.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765125.pdf)
 
 ---
 
@@ -24872,7 +24872,7 @@ Eating less is the way to go
 
 Organic or not
 
-[PDF](../pdf/kronprinsessen/EFTA01765091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765091.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765091.pdf)
 
 ---
 
@@ -24886,7 +24886,7 @@ Organic or not
 
 Sorry my mistake phosphorous not potassium
 
-[PDF](../pdf/kronprinsessen/EFTA01765062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765062.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765062.pdf)
 
 ---
 
@@ -24922,7 +24922,7 @@ EFTA_R1_00072688
 
 EFTA01764978
 
-[PDF](../pdf/kronprinsessen/EFTA01764978.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764978.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764978.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764978.pdf)
 
 ---
 
@@ -24936,7 +24936,7 @@ EFTA01764978
 
 And what was this ?
 
-[PDF](../pdf/kronprinsessen/EFTA01764940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764940.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764940.pdf)
 
 ---
 
@@ -24968,7 +24968,7 @@ Muchos gracias
 
 <=r>
 
-[PDF](../pdf/kronprinsessen/EFTA01764905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764905.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764905.pdf)
 
 ---
 
@@ -24984,7 +24984,7 @@ Fit
 
 Lost you its your bad connection call you after dinner
 
-[PDF](../pdf/kronprinsessen/EFTA00947138.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947138.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947138.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947138.pdf)
 
 ---
 
@@ -25000,7 +25000,7 @@ http://health.usnews.com/health-news/news/articles/201 2/09/03/organic-foods-not
 
 study-says
 
-[PDF](../pdf/kronprinsessen/EFTA00947137.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947137.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947137.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947137.pdf)
 
 ---
 
@@ -25014,7 +25014,7 @@ study-says
 
 https://www.youtube.corn/watch?v=jEgojvJJ8ew
 
-[PDF](../pdf/kronprinsessen/EFTA00947136.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947136.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947136.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947136.pdf)
 
 ---
 
@@ -25028,7 +25028,7 @@ https://www.youtube.corn/watch?v=jEgojvJJ8ew
 
 Lost you its your bad connection I'll call you after dinner
 
-[PDF](../pdf/kronprinsessen/EFTA01765844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765844.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765844.pdf)
 
 ---
 
@@ -25042,7 +25042,7 @@ Lost you its your bad connection I'll call you after dinner
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976834.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976834.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976834.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976834.pdf)
 
 ---
 
@@ -25056,7 +25056,7 @@ Lost you its your bad connection I'll call you after dinner
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00947122.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947122.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947122.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947122.pdf)
 
 ---
 
@@ -25070,7 +25070,7 @@ Lost you its your bad connection I'll call you after dinner
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976787.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976787.pdf)
 
 ---
 
@@ -25084,7 +25084,7 @@ Lost you its your bad connection I'll call you after dinner
 
 send me a number to call
 
-[PDF](../pdf/kronprinsessen/EFTA00947119.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947119.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947119.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947119.pdf)
 
 ---
 
@@ -25098,7 +25098,7 @@ send me a number to call
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01765480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765480.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01765480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765480.pdf)
 
 ---
 
@@ -25112,7 +25112,7 @@ send me a number to call
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00701176.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701176.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00701176.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701176.pdf)
 
 ---
 
@@ -25126,7 +25126,7 @@ send me a number to call
 
 send me a number to call
 
-[PDF](../pdf/kronprinsessen/EFTA01980980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980980.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01980980.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980980.pdf)
 
 ---
 
@@ -25142,7 +25142,7 @@ Call me when you wake up
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00947111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947111.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947111.pdf)
 
 ---
 
@@ -25156,7 +25156,7 @@ Call me when you wake up
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01763584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763584.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763584.pdf)
 
 ---
 
@@ -25176,7 +25176,7 @@ Mrs green & friends
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00671734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671734.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00671734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671734.pdf)
 
 ---
 
@@ -25192,7 +25192,7 @@ reading
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00947089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947089.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947089.pdf)
 
 ---
 
@@ -25206,7 +25206,7 @@ reading
 
 Bell 430
 
-[PDF](../pdf/kronprinsessen/EFTA00947087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947087.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947087.pdf)
 
 ---
 
@@ -25226,7 +25226,7 @@ Mrs green & f=iends
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01763870.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763870.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763870.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763870.pdf)
 
 ---
 
@@ -25242,7 +25242,7 @@ reading
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01977086.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977086.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01977086.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977086.pdf)
 
 ---
 
@@ -25260,7 +25260,7 @@ Den 1. nov. 2012 =1. 11.32 skrev Jeffrey Epstein:
 
 Bell
 
-[PDF](../pdf/kronprinsessen/EFTA01763846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763846.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01763846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763846.pdf)
 
 ---
 
@@ -25274,7 +25274,7 @@ Bell
 
 Bell 430
 
-[PDF](../pdf/kronprinsessen/EFTA01976956.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976956.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976956.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976956.pdf)
 
 ---
 
@@ -25288,7 +25288,7 @@ Bell 430
 
 How big is heil ? And why are you up still
 
-[PDF](../pdf/kronprinsessen/EFTA01764838.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764838.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764838.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764838.pdf)
 
 ---
 
@@ -25302,7 +25302,7 @@ How big is heil ? And why are you up still
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01976562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976562.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01976562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976562.pdf)
 
 ---
 
@@ -25316,7 +25316,7 @@ How big is heil ? And why are you up still
 
 In jan meditating in Miami after the 6th when returning from st barts for Christmas
 
-[PDF](../pdf/kronprinsessen/EFTA01764752.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764752.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764752.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764752.pdf)
 
 ---
 
@@ -25330,7 +25330,7 @@ In jan meditating in Miami after the 6th when returning from st barts for Christ
 
 Why not Norway ?
 
-[PDF](../pdf/kronprinsessen/EFTA00947082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947082.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947082.pdf)
 
 ---
 
@@ -25348,7 +25348,7 @@ Den 31. okt. 2012 Id. 23:39 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 ok„ i will not come to norway„ when arc you next in the states?
 
-[PDF](../pdf/kronprinsessen/EFTA02010134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010134.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02010134.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010134.pdf)
 
 ---
 
@@ -25362,7 +25362,7 @@ ok„ i will not come to norway„ when arc you next in the states?
 
 Why not Norway ?
 
-[PDF](../pdf/kronprinsessen/EFTA01764342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764342.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764342.pdf)
 
 ---
 
@@ -25376,7 +25376,7 @@ Why not Norway ?
 
 ok„ i will not come to norway„ when are you next in the states?
 
-[PDF](../pdf/kronprinsessen/EFTA00947072.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947072.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947072.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947072.pdf)
 
 ---
 
@@ -25390,7 +25390,7 @@ ok„ i will not come to norway„ when are you next in the states?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01980514.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980514.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01980514.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980514.pdf)
 
 ---
 
@@ -25412,7 +25412,7 @@ And read yr emails !!!!
 
 Let's chat soon
 
-[PDF](../pdf/kronprinsessen/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
 
 ---
 
@@ -25434,7 +25434,7 @@ And read yr emails !!!!
 
 Let's chat soon
 
-[PDF](../pdf/kpm/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
+[PDF](../../pdf/kpm/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
 
 ---
 
@@ -25448,7 +25448,7 @@ Let's chat soon
 
 no should i ?, i will be in paris for the 20-22 , then oslo
 
-[PDF](../pdf/kpm/EFTA00947544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947544.pdf)
+[PDF](../../pdf/kpm/EFTA00947544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947544.pdf)
 
 ---
 
@@ -25462,7 +25462,7 @@ no should i ?, i will be in paris for the 20-22 , then oslo
 
 do i book the continetal or the radison?
 
-[PDF](../pdf/kpm/EFTA00947542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947542.pdf)
+[PDF](../../pdf/kpm/EFTA00947542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947542.pdf)
 
 ---
 
@@ -25486,7 +25486,7 @@ Let's chat soon
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01766982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766982.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01766982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766982.pdf)
 
 ---
 
@@ -25510,7 +25510,7 @@ Let's chat soon
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kpm/EFTA01766982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766982.pdf)
+[PDF](../../pdf/kpm/EFTA01766982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766982.pdf)
 
 ---
 
@@ -25524,7 +25524,7 @@ Let's chat soon
 
 no should i ?, i will be in paris for the 20-22 , then oslo
 
-[PDF](../pdf/kpm/EFTA01980083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980083.pdf)
+[PDF](../../pdf/kpm/EFTA01980083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980083.pdf)
 
 ---
 
@@ -25548,7 +25548,7 @@ Reminds me of autumn and heartbreak in all forms
 
 Treat the island well
 
-[PDF](../pdf/kpm/EFTA00947537.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947537.pdf)
+[PDF](../../pdf/kpm/EFTA00947537.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947537.pdf)
 
 ---
 
@@ -25562,7 +25562,7 @@ Treat the island well
 
 i plan to come to oslo the weekend of the 23 rd of nov.
 
-[PDF](../pdf/kronprinsessen/EFTA00947532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947532.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00947532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947532.pdf)
 
 ---
 
@@ -25576,7 +25576,7 @@ i plan to come to oslo the weekend of the 23 rd of nov.
 
 do i book the continetal or the radison?
 
-[PDF](../pdf/kpm/EFTA01979777.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979777.pdf)
+[PDF](../../pdf/kpm/EFTA01979777.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979777.pdf)
 
 ---
 
@@ -25598,7 +25598,7 @@ Reminds me of autumn and heartbreak in all forms
 
 Treat the island well
 
-[PDF](../pdf/kpm/EFTA01766641.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766641.pdf)
+[PDF](../../pdf/kpm/EFTA01766641.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766641.pdf)
 
 ---
 
@@ -25612,7 +25612,7 @@ Treat the island well
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01979143.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979143.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01979143.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979143.pdf)
 
 ---
 
@@ -25628,7 +25628,7 @@ Storm passed i guess
 
 Which they have a tendency to ..
 
-[PDF](../pdf/kronprinsessen/EFTA01764711.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764711.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764711.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764711.pdf)
 
 ---
 
@@ -25642,7 +25642,7 @@ Which they have a tendency to ..
 
 on the beach in the caribean
 
-[PDF](../pdf/kronprinsessen/EFTA01978859.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978859.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01978859.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978859.pdf)
 
 ---
 
@@ -25656,7 +25656,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA01979717.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979717.pdf)
+[PDF](../../pdf/mette/EFTA01979717.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01979717.pdf)
 
 ---
 
@@ -25670,7 +25670,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02562500.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562500.pdf)
+[PDF](../../pdf/mette/EFTA02562500.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562500.pdf)
 
 ---
 
@@ -25684,7 +25684,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA00701507.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701507.pdf)
+[PDF](../../pdf/mette/EFTA00701507.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701507.pdf)
 
 ---
 
@@ -25698,7 +25698,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA01763800.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763800.pdf)
+[PDF](../../pdf/mette/EFTA01763800.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763800.pdf)
 
 ---
 
@@ -25712,7 +25712,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02392840.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392840.pdf)
+[PDF](../../pdf/mette/EFTA02392840.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392840.pdf)
 
 ---
 
@@ -25726,7 +25726,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02561732.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561732.pdf)
+[PDF](../../pdf/mette/EFTA02561732.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561732.pdf)
 
 ---
 
@@ -25740,7 +25740,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA00701218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701218.pdf)
+[PDF](../../pdf/mette/EFTA00701218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701218.pdf)
 
 ---
 
@@ -25754,7 +25754,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA01890613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890613.pdf)
+[PDF](../../pdf/mette/EFTA01890613.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890613.pdf)
 
 ---
 
@@ -25768,7 +25768,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02393597.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393597.pdf)
+[PDF](../../pdf/mette/EFTA02393597.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393597.pdf)
 
 ---
 
@@ -25782,7 +25782,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02393558.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393558.pdf)
+[PDF](../../pdf/mette/EFTA02393558.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393558.pdf)
 
 ---
 
@@ -25796,7 +25796,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA01763535.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763535.pdf)
+[PDF](../../pdf/mette/EFTA01763535.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763535.pdf)
 
 ---
 
@@ -25810,7 +25810,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02392850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392850.pdf)
+[PDF](../../pdf/mette/EFTA02392850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392850.pdf)
 
 ---
 
@@ -25824,7 +25824,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02393498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393498.pdf)
+[PDF](../../pdf/mette/EFTA02393498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02393498.pdf)
 
 ---
 
@@ -25838,7 +25838,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02392931.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392931.pdf)
+[PDF](../../pdf/mette/EFTA02392931.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392931.pdf)
 
 ---
 
@@ -25852,7 +25852,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02392821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392821.pdf)
+[PDF](../../pdf/mette/EFTA02392821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02392821.pdf)
 
 ---
 
@@ -25866,7 +25866,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA01764884.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764884.pdf)
+[PDF](../../pdf/mette/EFTA01764884.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764884.pdf)
 
 ---
 
@@ -25880,7 +25880,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02561691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561691.pdf)
+[PDF](../../pdf/mette/EFTA02561691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561691.pdf)
 
 ---
 
@@ -25894,7 +25894,7 @@ on the beach in the caribean
 
 
 
-[PDF](../pdf/mette/EFTA02562382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562382.pdf)
+[PDF](../../pdf/mette/EFTA02562382.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02562382.pdf)
 
 ---
 
@@ -25914,7 +25914,7 @@ I'll take the Island
 
 But then again with all the smoking im doing I'll probably die before you
 
-[PDF](../pdf/kronprinsessen/EFTA00945918.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945918.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945918.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945918.pdf)
 
 ---
 
@@ -25938,7 +25938,7 @@ Den 22. okt. 2012 Id. 01:27 skrev Jeffrey Epstein :
 
 Im planning on norway the 15-19
 
-[PDF](../pdf/kronprinsessen/EFTA01998614.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01998614.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01998614.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01998614.pdf)
 
 ---
 
@@ -25958,7 +25958,7 @@ I'll take the Island
 
 But then again with all the smoking im doing I'll probably die before you
 
-[PDF](../pdf/kronprinsessen/EFTA01764934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764934.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764934.pdf)
 
 ---
 
@@ -25972,7 +25972,7 @@ But then again with all the smoking im doing I'll probably die before you
 
 Im planning on nonvay the 15-19 .
 
-[PDF](../pdf/kronprinsessen/EFTA00945892.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945892.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945892.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945892.pdf)
 
 ---
 
@@ -25986,7 +25986,7 @@ Im planning on nonvay the 15-19 .
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01893337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01893337.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01893337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01893337.pdf)
 
 ---
 
@@ -26002,7 +26002,7 @@ was my future ex wife and mother of my children there. boris and i are looking f
 
 , so i can have someone to leave the island to
 
-[PDF](../pdf/kronprinsessen/EFTA00945849.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945849.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945849.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945849.pdf)
 
 ---
 
@@ -26018,7 +26018,7 @@ ok, then read Bonfire of the vanitites , tom wolfe " theodore dreiser. the finan
 
 joseph heifer. ,
 
-[PDF](../pdf/kronprinsessen/EFTA00945844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945844.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945844.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945844.pdf)
 
 ---
 
@@ -26032,7 +26032,7 @@ joseph heifer. ,
 
 Not yet seem to be addicted to my stupid phone at the moment
 
-[PDF](../pdf/kronprinsessen/EFTA00700324.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700324.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00700324.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700324.pdf)
 
 ---
 
@@ -26048,7 +26048,7 @@ was my future ex wife and mother of my children there. boris and i are looking f
 
 year old genes , so i can have someone to leave the island to
 
-[PDF](../pdf/kronprinsessen/EFTA01890601.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890601.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01890601.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890601.pdf)
 
 ---
 
@@ -26062,7 +26062,7 @@ year old genes , so i can have someone to leave the island to
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01890524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890524.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01890524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890524.pdf)
 
 ---
 
@@ -26076,7 +26076,7 @@ year old genes , so i can have someone to leave the island to
 
 Not yet seem to be addicted to my stupid phone at the moment
 
-[PDF](../pdf/kronprinsessen/EFTA01764579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764579.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764579.pdf)
 
 ---
 
@@ -26106,7 +26106,7 @@ Where you know the characters are not hanging around for much long
 
 Books more books
 
-[PDF](../pdf/kronprinsessen/EFTA02021839.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021839.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02021839.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021839.pdf)
 
 ---
 
@@ -26120,7 +26120,7 @@ Books more books
 
 did you switch your home page to arts and letters daily as i instructed?
 
-[PDF](../pdf/kronprinsessen/EFTA00945836.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945836.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945836.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945836.pdf)
 
 ---
 
@@ -26134,7 +26134,7 @@ did you switch your home page to arts and letters daily as i instructed?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01892685.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01892685.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01892685.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01892685.pdf)
 
 ---
 
@@ -26154,7 +26154,7 @@ Where you know the characters are not hanging around for much long
 
 Books more books
 
-[PDF](../pdf/kronprinsessen/EFTA00700061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700061.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00700061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700061.pdf)
 
 ---
 
@@ -26168,7 +26168,7 @@ Books more books
 
 weather was too bad, i returned to ny.. how was your wedding.
 
-[PDF](../pdf/kronprinsessen/EFTA00945827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945827.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00945827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945827.pdf)
 
 ---
 
@@ -26188,7 +26188,7 @@ Where you know the characters arc not hanging around for much long
 
 Books more books
 
-[PDF](../pdf/kronprinsessen/EFTA02037401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02037401.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02037401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02037401.pdf)
 
 ---
 
@@ -26210,7 +26210,7 @@ Books more books
 
 0en 21. okt. 2012 kl. 03:09 skrev Jeffrey Epstein
 
-[PDF](../pdf/kronprinsessen/EFTA01764867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764867.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01764867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764867.pdf)
 
 ---
 
@@ -26224,7 +26224,7 @@ Books more books
 
 oslo
 
-[PDF](../pdf/mette/EFTA00946054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00946054.pdf)
+[PDF](../../pdf/mette/EFTA00946054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00946054.pdf)
 
 ---
 
@@ -26256,7 +26256,7 @@ oslo
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02022050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022050.pdf)
+[PDF](../../pdf/mette/EFTA02022050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022050.pdf)
 
 ---
 
@@ -26280,7 +26280,7 @@ If you arc not going, we arc going together next time for sure.
 
 A
 
-[PDF](../pdf/mette/EFTA01894179.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01894179.pdf)
+[PDF](../../pdf/mette/EFTA01894179.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01894179.pdf)
 
 ---
 
@@ -26304,7 +26304,7 @@ EFTA_R1_00492212
 
 EFTA01997102
 
-[PDF](../pdf/mette/EFTA01997102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01997102.pdf)
+[PDF](../../pdf/mette/EFTA01997102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01997102.pdf)
 
 ---
 
@@ -26318,7 +26318,7 @@ EFTA01997102
 
 phone number?
 
-[PDF](../pdf/kronprinsessen/EFTA00944860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00944860.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00944860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00944860.pdf)
 
 ---
 
@@ -26348,7 +26348,7 @@ wrote:
 
 And I'm still trying to get over the shock that you are in fact wife hunting ..
 
-[PDF](../pdf/kronprinsessen/EFTA02028132.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02028132.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02028132.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02028132.pdf)
 
 ---
 
@@ -26372,7 +26372,7 @@ On Mon, Oct 15, 2012 at 12:07 PM, H.K.H. Kronprinsessen
 
 wrote:
 
-[PDF](../pdf/kronprinsessen/EFTA01990185.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01990185.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01990185.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01990185.pdf)
 
 ---
 
@@ -26396,7 +26396,7 @@ But then again
 
 Who am Ito talk ?
 
-[PDF](../pdf/kronprinsessen/EFTA02033693.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02033693.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02033693.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02033693.pdf)
 
 ---
 
@@ -26412,7 +26412,7 @@ what is the weather like, I am on my wife hunt. paris is proving interesting but
 
 scandinavians
 
-[PDF](../pdf/kronprinsessen/EFTA01892262.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01892262.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01892262.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01892262.pdf)
 
 ---
 
@@ -26426,7 +26426,7 @@ scandinavians
 
 not sure yet ..
 
-[PDF](../pdf/kronprinsessen/EFTA01891158.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01891158.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01891158.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01891158.pdf)
 
 ---
 
@@ -26444,7 +26444,7 @@ EFTA_R1_01723262
 
 EFTA02561614
 
-[PDF](../pdf/kronprinsessen/EFTA02561614.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561614.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02561614.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561614.pdf)
 
 ---
 
@@ -26458,7 +26458,7 @@ EFTA02561614
 
 Tonight no sorry.
 
-[PDF](../pdf/kronprinsessen/EFTA01887327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887327.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01887327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887327.pdf)
 
 ---
 
@@ -26472,7 +26472,7 @@ Tonight no sorry.
 
 Tonight no sorry.
 
-[PDF](../pdf/kronprinsessen/EFTA00630799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00630799.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00630799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00630799.pdf)
 
 ---
 
@@ -26486,7 +26486,7 @@ Tonight no sorry.
 
 Tonight no sorry.
 
-[PDF](../pdf/kronprinsessen/EFTA01982276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01982276.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01982276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01982276.pdf)
 
 ---
 
@@ -26500,7 +26500,7 @@ Tonight no sorry.
 
 are you coming
 
-[PDF](../pdf/kronprinsessen/EFTA00943480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943480.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943480.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943480.pdf)
 
 ---
 
@@ -26514,7 +26514,7 @@ are you coming
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01884716.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884716.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01884716.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884716.pdf)
 
 ---
 
@@ -26530,7 +26530,7 @@ And what kind would that be ?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943922.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943922.pdf)
 
 ---
 
@@ -26546,7 +26546,7 @@ not the type you really need
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943911.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943911.pdf)
 
 ---
 
@@ -26562,7 +26562,7 @@ You are going to give me a lesson?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943907.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943907.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943907.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943907.pdf)
 
 ---
 
@@ -26578,7 +26578,7 @@ in fact wed night i have the princeton english professor michael wood for dinner
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943899.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943899.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943899.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943899.pdf)
 
 ---
 
@@ -26594,7 +26594,7 @@ thurs 330?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943893.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943893.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943893.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943893.pdf)
 
 ---
 
@@ -26610,7 +26610,7 @@ I'll check and get back to you wed thurs is better for me
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00699565.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699565.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699565.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699565.pdf)
 
 ---
 
@@ -26628,7 +26628,7 @@ Sony for all the typos .
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00699551.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699551.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00699551.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699551.pdf)
 
 ---
 
@@ -26646,7 +26646,7 @@ As it is in dire need loving shit books & swears in lack of vocabulary
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943886.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943886.pdf)
 
 ---
 
@@ -26666,7 +26666,7 @@ not the type you really need
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01988935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988935.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01988935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988935.pdf)
 
 ---
 
@@ -26686,7 +26686,7 @@ not the type you really need
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01888435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888435.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01888435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888435.pdf)
 
 ---
 
@@ -26714,7 +26714,7 @@ check and get back to you wed thurs is better for me
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02008858.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02008858.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02008858.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02008858.pdf)
 
 ---
 
@@ -26742,7 +26742,7 @@ check and get back to you wed thurs is better for me
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01888100.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888100.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01888100.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888100.pdf)
 
 ---
 
@@ -26758,7 +26758,7 @@ in fact wed night i have the princeton english professor michael wood for dinner
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01887774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887774.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01887774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887774.pdf)
 
 ---
 
@@ -26772,7 +26772,7 @@ in fact wed night i have the princeton english professor michael wood for dinner
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01887288.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887288.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01887288.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887288.pdf)
 
 ---
 
@@ -26788,7 +26788,7 @@ I'll check and get back to you wed thurs is better for me
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02007435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007435.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02007435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007435.pdf)
 
 ---
 
@@ -26806,7 +26806,7 @@ Sony for all the typos .
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01887064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887064.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01887064.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887064.pdf)
 
 ---
 
@@ -26824,7 +26824,7 @@ As it is in dire need loving shit books & swears in lack of vocabulary
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02007335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007335.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02007335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007335.pdf)
 
 ---
 
@@ -26846,7 +26846,7 @@ new
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01886911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886911.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01886911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886911.pdf)
 
 ---
 
@@ -26862,7 +26862,7 @@ new
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00943831.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943831.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943831.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943831.pdf)
 
 ---
 
@@ -26878,7 +26878,7 @@ Oh but thank you
 
 The one who got kicked out this spring or the new?
 
-[PDF](../pdf/kronprinsessen/EFTA00662155.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00662155.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00662155.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00662155.pdf)
 
 ---
 
@@ -26892,7 +26892,7 @@ The one who got kicked out this spring or the new?
 
 I have the president of the Maldives for dinner. you are welcme
 
-[PDF](../pdf/kronprinsessen/EFTA00943827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943827.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943827.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943827.pdf)
 
 ---
 
@@ -26906,7 +26906,7 @@ I have the president of the Maldives for dinner. you are welcme
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02030674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02030674.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02030674.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02030674.pdf)
 
 ---
 
@@ -26922,7 +26922,7 @@ Oh but thank you
 
 The one who got kicked out this spring or the new?
 
-[PDF](../pdf/kronprinsessen/EFTA01888253.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888253.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01888253.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888253.pdf)
 
 ---
 
@@ -26936,7 +26936,7 @@ The one who got kicked out this spring or the new?
 
 I have the president of the Maldives for dinner. you are welcme
 
-[PDF](../pdf/kronprinsessen/EFTA01888054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888054.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01888054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888054.pdf)
 
 ---
 
@@ -26950,7 +26950,7 @@ I have the president of the Maldives for dinner. you are welcme
 
 @boringparty
 
-[PDF](../pdf/kronprinsessen/EFTA00661906.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00661906.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00661906.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00661906.pdf)
 
 ---
 
@@ -26964,7 +26964,7 @@ I have the president of the Maldives for dinner. you are welcme
 
 I have all your friends here„ cg of norway, ambassador. , terje, thorbjorn.. where are you ?
 
-[PDF](../pdf/kronprinsessen/EFTA00943817.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943817.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943817.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943817.pdf)
 
 ---
 
@@ -26978,7 +26978,7 @@ I have all your friends here„ cg of norway, ambassador. , terje, thorbjorn.. w
 
 Come save us. Im dying of boredom
 
-[PDF](../pdf/kronprinsessen/EFTA00943816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943816.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943816.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943816.pdf)
 
 ---
 
@@ -27004,7 +27004,7 @@ wrote:
 
 Come save us. Im dying of boredom
 
-[PDF](../pdf/kronprinsessen/EFTA01987267.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01987267.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01987267.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01987267.pdf)
 
 ---
 
@@ -27018,7 +27018,7 @@ Come save us. Im dying of boredom
 
 I have all your friends here„ cg of norway, ambassador. , teaje, thorbjom.. where are you ?
 
-[PDF](../pdf/kronprinsessen/EFTA01886874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886874.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01886874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886874.pdf)
 
 ---
 
@@ -27040,7 +27040,7 @@ yesterday i almost forgot fuck... its just that i almost had a
 
 communication with you that did not include that word sorry,
 
-[PDF](../pdf/kronprinsessen/EFTA02010961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010961.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02010961.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010961.pdf)
 
 ---
 
@@ -27062,7 +27062,7 @@ yesterday i almost forgot fuck... its just that i almost had a
 
 communication with you that did not include that word sorry,
 
-[PDF](../pdf/kronprinsessen/EFTA01886833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886833.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01886833.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886833.pdf)
 
 ---
 
@@ -27080,7 +27080,7 @@ Mette is in her hotel room — can't chose which dress.
 
 EFTA00943797
 
-[PDF](../pdf/mette/EFTA00943797.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943797.pdf)
+[PDF](../../pdf/mette/EFTA00943797.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943797.pdf)
 
 ---
 
@@ -27098,7 +27098,7 @@ Very mellow
 
 Will check out book upon my return
 
-[PDF](../pdf/kronprinsessen/EFTA00721234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00721234.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00721234.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00721234.pdf)
 
 ---
 
@@ -27142,7 +27142,7 @@ I AM NOT JOKING ABOUT THE PASSWORD!
 
 Boris
 
-[PDF](../pdf/kronprinsessen/EFTA00943780.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943780.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00943780.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943780.pdf)
 
 ---
 
@@ -27162,7 +27162,7 @@ EFTA_R1_01721836
 
 EFTA02560728
 
-[PDF](../pdf/mette/EFTA02560728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560728.pdf)
+[PDF](../../pdf/mette/EFTA02560728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560728.pdf)
 
 ---
 
@@ -27184,7 +27184,7 @@ EFTA_R1_00301755
 
 EFTA01885825
 
-[PDF](../pdf/mette/EFTA01885825.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885825.pdf)
+[PDF](../../pdf/mette/EFTA01885825.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885825.pdf)
 
 ---
 
@@ -27222,7 +27222,7 @@ I'm surfing
 
 Very mellow
 
-[PDF](../pdf/kronprinsessen/EFTA02005562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005562.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02005562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005562.pdf)
 
 ---
 
@@ -27236,7 +27236,7 @@ Very mellow
 
 She needs to say it with a straight face and a tiara on her head ;-)
 
-[PDF](../pdf/kronprinsessen/EFTA01999526.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01999526.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01999526.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01999526.pdf)
 
 ---
 
@@ -27254,7 +27254,7 @@ Very mellow
 
 Will check out book upon my return
 
-[PDF](../pdf/kronprinsessen/EFTA01995140.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01995140.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01995140.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01995140.pdf)
 
 ---
 
@@ -27268,7 +27268,7 @@ Will check out book upon my return
 
 Not appropriate for HRH! Call the guards
 
-[PDF](../pdf/kronprinsessen/EFTA01998415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01998415.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01998415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01998415.pdf)
 
 ---
 
@@ -27312,7 +27312,7 @@ EFTA_R1_00531545
 
 EFTA02024605
 
-[PDF](../pdf/kronprinsessen/EFTA02024605.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024605.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02024605.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024605.pdf)
 
 ---
 
@@ -27338,7 +27338,7 @@ To: "Archie Dru "H.K.H. Kron rinsessen
 
 icevacationOgmail.com>
 
-[PDF](../pdf/kronprinsessen/EFTA01885034.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885034.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01885034.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885034.pdf)
 
 ---
 
@@ -27354,7 +27354,7 @@ EFTA_R1_00481784
 
 EFTA01989528
 
-[PDF](../pdf/kronprinsessen/EFTA01989528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01989528.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01989528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01989528.pdf)
 
 ---
 
@@ -27390,7 +27390,7 @@ EFTA_R1_00492428
 
 EFTA01997237
 
-[PDF](../pdf/kronprinsessen/EFTA01997237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01997237.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01997237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01997237.pdf)
 
 ---
 
@@ -27408,7 +27408,7 @@ EFTA_R1_01720945
 
 EFTA02560114
 
-[PDF](../pdf/mette/EFTA02560114.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560114.pdf)
+[PDF](../../pdf/mette/EFTA02560114.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560114.pdf)
 
 ---
 
@@ -27444,7 +27444,7 @@ EFTA_R1_00483308
 
 EFTA01990627
 
-[PDF](../pdf/mette/EFTA01990627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01990627.pdf)
+[PDF](../../pdf/mette/EFTA01990627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01990627.pdf)
 
 ---
 
@@ -27474,7 +27474,7 @@ i would do that before mette
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00943683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943683.pdf)
+[PDF](../../pdf/mette/EFTA00943683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943683.pdf)
 
 ---
 
@@ -27490,7 +27490,7 @@ i would do that before mette
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00943678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943678.pdf)
+[PDF](../../pdf/mette/EFTA00943678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943678.pdf)
 
 ---
 
@@ -27520,7 +27520,7 @@ i would do that before mette
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02010191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010191.pdf)
+[PDF](../../pdf/mette/EFTA02010191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010191.pdf)
 
 ---
 
@@ -27542,7 +27542,7 @@ would HAVE TO BE more fun that what i expect
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01888774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888774.pdf)
+[PDF](../../pdf/mette/EFTA01888774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888774.pdf)
 
 ---
 
@@ -27556,7 +27556,7 @@ would HAVE TO BE more fun that what i expect
 
 nick pritsker is coming at 1.. elon can join
 
-[PDF](../pdf/mette/EFTA00943626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943626.pdf)
+[PDF](../../pdf/mette/EFTA00943626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943626.pdf)
 
 ---
 
@@ -27592,7 +27592,7 @@ EFTA_R1_00509978
 
 EFTA02009208
 
-[PDF](../pdf/mette/EFTA02009208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02009208.pdf)
+[PDF](../../pdf/mette/EFTA02009208.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02009208.pdf)
 
 ---
 
@@ -27612,7 +27612,7 @@ i would do that before incue
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01888905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888905.pdf)
+[PDF](../../pdf/mette/EFTA01888905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888905.pdf)
 
 ---
 
@@ -27638,7 +27638,7 @@ Going to sleep
 
 B
 
-[PDF](../pdf/mette/EFTA00674939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00674939.pdf)
+[PDF](../../pdf/mette/EFTA00674939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00674939.pdf)
 
 ---
 
@@ -27652,7 +27652,7 @@ B
 
 can you send mette , contact. , could we try to have elon and , kimball over to the house
 
-[PDF](../pdf/mette/EFTA00943567.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943567.pdf)
+[PDF](../../pdf/mette/EFTA00943567.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943567.pdf)
 
 ---
 
@@ -27672,7 +27672,7 @@ EFTA_R1_01722449
 
 EFTA02561117
 
-[PDF](../pdf/mette/EFTA02561117.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561117.pdf)
+[PDF](../../pdf/mette/EFTA02561117.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561117.pdf)
 
 ---
 
@@ -27698,7 +27698,7 @@ Going to sleep
 
 B
 
-[PDF](../pdf/mette/EFTA02002729.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02002729.pdf)
+[PDF](../../pdf/mette/EFTA02002729.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02002729.pdf)
 
 ---
 
@@ -27724,7 +27724,7 @@ Going to sleep
 
 B
 
-[PDF](../pdf/mette/EFTA01886432.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886432.pdf)
+[PDF](../../pdf/mette/EFTA01886432.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886432.pdf)
 
 ---
 
@@ -27738,7 +27738,7 @@ B
 
 
 
-[PDF](../pdf/mette/EFTA01886068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886068.pdf)
+[PDF](../../pdf/mette/EFTA01886068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886068.pdf)
 
 ---
 
@@ -27754,7 +27754,7 @@ i promised to send mette some books as she asked but she wanted them sent to her
 
 was fun„ have meetings for the past hour. call when you wake
 
-[PDF](../pdf/mette/EFTA00944188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00944188.pdf)
+[PDF](../../pdf/mette/EFTA00944188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00944188.pdf)
 
 ---
 
@@ -27768,7 +27768,7 @@ was fun„ have meetings for the past hour. call when you wake
 
 
 
-[PDF](../pdf/mette/EFTA01888506.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888506.pdf)
+[PDF](../../pdf/mette/EFTA01888506.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888506.pdf)
 
 ---
 
@@ -27798,7 +27798,7 @@ Boris
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01887071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887071.pdf)
+[PDF](../../pdf/mette/EFTA01887071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887071.pdf)
 
 ---
 
@@ -27822,7 +27822,7 @@ Boris
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02007083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007083.pdf)
+[PDF](../../pdf/mette/EFTA02007083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007083.pdf)
 
 ---
 
@@ -27838,7 +27838,7 @@ Try cell
 
 Sorry for all the typos .
 
-[PDF](../pdf/mette/EFTA01886629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886629.pdf)
+[PDF](../../pdf/mette/EFTA01886629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886629.pdf)
 
 ---
 
@@ -27874,7 +27874,7 @@ Sony for all the typos
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA02001656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001656.pdf)
+[PDF](../../pdf/mette/EFTA02001656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001656.pdf)
 
 ---
 
@@ -27926,7 +27926,7 @@ EFTA_R1_00299744
 
 EFTA01884739
 
-[PDF](../pdf/mette/EFTA01884739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884739.pdf)
+[PDF](../../pdf/mette/EFTA01884739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884739.pdf)
 
 ---
 
@@ -27958,7 +27958,7 @@ Subject: Re: Thursday night
 
 what time is your GALA „ should we organzc a sat lunch , ?
 
-[PDF](../pdf/mette/EFTA02025773.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025773.pdf)
+[PDF](../../pdf/mette/EFTA02025773.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025773.pdf)
 
 ---
 
@@ -27972,7 +27972,7 @@ what time is your GALA „ should we organzc a sat lunch , ?
 
 what time is your GALA „ should we organze a sat lunch , ?
 
-[PDF](../pdf/mette/EFTA00943063.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943063.pdf)
+[PDF](../../pdf/mette/EFTA00943063.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943063.pdf)
 
 ---
 
@@ -27986,7 +27986,7 @@ what time is your GALA „ should we organze a sat lunch , ?
 
 
 
-[PDF](../pdf/mette/EFTA01809446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01809446.pdf)
+[PDF](../../pdf/mette/EFTA01809446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01809446.pdf)
 
 ---
 
@@ -28022,7 +28022,7 @@ EFTA_R1_00505346
 
 EFTA02006092
 
-[PDF](../pdf/mette/EFTA02006092.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006092.pdf)
+[PDF](../../pdf/mette/EFTA02006092.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02006092.pdf)
 
 ---
 
@@ -28036,7 +28036,7 @@ EFTA02006092
 
 fun
 
-[PDF](../pdf/mette/EFTA01890270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890270.pdf)
+[PDF](../../pdf/mette/EFTA01890270.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01890270.pdf)
 
 ---
 
@@ -28058,7 +28058,7 @@ EFTA_R1_00534934
 
 EFTA02026850
 
-[PDF](../pdf/mette/EFTA02026850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026850.pdf)
+[PDF](../../pdf/mette/EFTA02026850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026850.pdf)
 
 ---
 
@@ -28082,7 +28082,7 @@ Subject:
 
 w.gpek ire.com/201 2/raunchy-windows
 
-[PDF](../pdf/mette/EFTA01879801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01879801.pdf)
+[PDF](../../pdf/mette/EFTA01879801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01879801.pdf)
 
 ---
 
@@ -28102,7 +28102,7 @@ could be fun as a spectator but could also just participate from a distance if y
 
 From: Jeffrey
 
-[PDF](../pdf/mette/EFTA01880062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880062.pdf)
+[PDF](../../pdf/mette/EFTA01880062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880062.pdf)
 
 ---
 
@@ -28116,7 +28116,7 @@ From: Jeffrey
 
 dates?
 
-[PDF](../pdf/mette/EFTA01878478.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01878478.pdf)
+[PDF](../../pdf/mette/EFTA01878478.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01878478.pdf)
 
 ---
 
@@ -28144,7 +28144,7 @@ EFTA_R1_00288817
 
 EFTA01878133
 
-[PDF](../pdf/mette/EFTA01878133.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01878133.pdf)
+[PDF](../../pdf/mette/EFTA01878133.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01878133.pdf)
 
 ---
 
@@ -28168,7 +28168,7 @@ Subject:
 
 http://www.geekwire.com/2012/raunchy-windows
 
-[PDF](../pdf/mette/EFTA00702028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00702028.pdf)
+[PDF](../../pdf/mette/EFTA00702028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00702028.pdf)
 
 ---
 
@@ -28198,7 +28198,7 @@ Subject:
 
 http://www.geekwire.com/2012/raunchy-windows
 
-[PDF](../pdf/mette/EFTA02394082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02394082.pdf)
+[PDF](../../pdf/mette/EFTA02394082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02394082.pdf)
 
 ---
 
@@ -28234,7 +28234,7 @@ yes a samll biopsy .. not a double mastecomy, its silly
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00671865.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671865.pdf)
+[PDF](../../pdf/mette/EFTA00671865.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671865.pdf)
 
 ---
 
@@ -28252,7 +28252,7 @@ It is crazyl
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00936516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936516.pdf)
+[PDF](../../pdf/mette/EFTA00936516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936516.pdf)
 
 ---
 
@@ -28266,7 +28266,7 @@ It is crazyl
 
 yes a samll biopsy .. not a double mastecomy, its silly
 
-[PDF](../pdf/mette/EFTA00936513.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936513.pdf)
+[PDF](../../pdf/mette/EFTA00936513.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936513.pdf)
 
 ---
 
@@ -28284,7 +28284,7 @@ It is crazy!
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01880080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880080.pdf)
+[PDF](../../pdf/mette/EFTA01880080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880080.pdf)
 
 ---
 
@@ -28302,7 +28302,7 @@ It is crazy!
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01984966.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984966.pdf)
+[PDF](../../pdf/mette/EFTA01984966.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984966.pdf)
 
 ---
 
@@ -28318,7 +28318,7 @@ yes a samll biopsy .. not a double mastccomy, its silly
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01880019-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019-1.pdf)
+[PDF](../../pdf/mette/EFTA01880019-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019-1.pdf)
 
 ---
 
@@ -28334,7 +28334,7 @@ yes a samll biopsy .. not a double mastccomy, its silly
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01880019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019.pdf)
+[PDF](../../pdf/mette/EFTA01880019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019.pdf)
 
 ---
 
@@ -28352,7 +28352,7 @@ Strangely it turns out that she told so many people re her surgery on 21. From m
 
 All are very sympathetic.
 
-[PDF](../pdf/mette/EFTA02021851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021851.pdf)
+[PDF](../../pdf/mette/EFTA02021851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021851.pdf)
 
 ---
 
@@ -28370,7 +28370,7 @@ EFTA_R1_00850115
 
 EFTA02169423
 
-[PDF](../pdf/mette/EFTA02169423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169423.pdf)
+[PDF](../../pdf/mette/EFTA02169423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169423.pdf)
 
 ---
 
@@ -28388,7 +28388,7 @@ EFTA_R1_00850170
 
 EFTA02169460
 
-[PDF](../pdf/mette/EFTA02169460.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169460.pdf)
+[PDF](../../pdf/mette/EFTA02169460.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169460.pdf)
 
 ---
 
@@ -28406,7 +28406,7 @@ Did you talk to bill. What did you decide? Pls let me know asap. I need to call 
 
 B
 
-[PDF](../pdf/mette/EFTA00935218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00935218.pdf)
+[PDF](../../pdf/mette/EFTA00935218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00935218.pdf)
 
 ---
 
@@ -28424,7 +28424,7 @@ Did you talk to bill. What did you decide? Pls let me know=asap. I need to call 
 
 B
 
-[PDF](../pdf/mette/EFTA01769860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01769860.pdf)
+[PDF](../../pdf/mette/EFTA01769860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01769860.pdf)
 
 ---
 
@@ -28544,7 +28544,7 @@ LG MW
 
 EFTA00934399
 
-[PDF](../pdf/mette/EFTA00934398.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934398.pdf)
+[PDF](../../pdf/mette/EFTA00934398.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934398.pdf)
 
 ---
 
@@ -28558,7 +28558,7 @@ EFTA00934399
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA00413897.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00413897.pdf)
+[PDF](../../pdf/mette/EFTA00413897.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00413897.pdf)
 
 ---
 
@@ -28572,7 +28572,7 @@ Reminder mette and Boris
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA00671852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671852.pdf)
+[PDF](../../pdf/mette/EFTA00671852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671852.pdf)
 
 ---
 
@@ -28586,7 +28586,7 @@ Reminder mette and Boris
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA01769915.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01769915.pdf)
+[PDF](../../pdf/mette/EFTA01769915.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01769915.pdf)
 
 ---
 
@@ -28600,7 +28600,7 @@ Reminder mette and Boris
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA02371307.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371307.pdf)
+[PDF](../../pdf/mette/EFTA02371307.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371307.pdf)
 
 ---
 
@@ -28614,7 +28614,7 @@ Reminder mette and Boris
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA02554611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02554611.pdf)
+[PDF](../../pdf/mette/EFTA02554611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02554611.pdf)
 
 ---
 
@@ -28628,7 +28628,7 @@ Reminder mette and Boris
 
 Reminder mette and Boris
 
-[PDF](../pdf/mette/EFTA01882947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01882947.pdf)
+[PDF](../../pdf/mette/EFTA01882947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01882947.pdf)
 
 ---
 
@@ -28646,7 +28646,7 @@ EFTA_R1_00486431
 
 EFTA01992976
 
-[PDF](../pdf/mette/EFTA01992976.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01992976.pdf)
+[PDF](../../pdf/mette/EFTA01992976.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01992976.pdf)
 
 ---
 
@@ -28664,7 +28664,7 @@ EFTA_R1_00485160
 
 EFTA01991981
 
-[PDF](../pdf/mette/EFTA01991981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991981.pdf)
+[PDF](../../pdf/mette/EFTA01991981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991981.pdf)
 
 ---
 
@@ -28700,7 +28700,7 @@ EFTA_R1_00850306
 
 EFTA02169540
 
-[PDF](../pdf/mette/EFTA02169540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169540.pdf)
+[PDF](../../pdf/mette/EFTA02169540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169540.pdf)
 
 ---
 
@@ -28734,7 +28734,7 @@ EFTA_R1_00851890
 
 EFTA02170434
 
-[PDF](../pdf/mette/EFTA02170434.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02170434.pdf)
+[PDF](../../pdf/mette/EFTA02170434.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02170434.pdf)
 
 ---
 
@@ -28812,7 +28812,7 @@ EFTA00414211
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00414210.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414210.pdf)
+[PDF](../../pdf/mette/EFTA00414210.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414210.pdf)
 
 ---
 
@@ -28870,7 +28870,7 @@ EFTA_R1_00297701
 
 EFTA01883496
 
-[PDF](../pdf/mette/EFTA01883496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883496.pdf)
+[PDF](../../pdf/mette/EFTA01883496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883496.pdf)
 
 ---
 
@@ -28904,7 +28904,7 @@ Reminder: Mette Boris
 
 EFTA00659965
 
-[PDF](../pdf/mette/EFTA00659965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00659965.pdf)
+[PDF](../../pdf/mette/EFTA00659965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00659965.pdf)
 
 ---
 
@@ -28938,7 +28938,7 @@ Reminder: Mette Boris
 
 EFTA00414164
 
-[PDF](../pdf/mette/EFTA00414164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414164.pdf)
+[PDF](../../pdf/mette/EFTA00414164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414164.pdf)
 
 ---
 
@@ -28952,7 +28952,7 @@ EFTA00414164
 
 Just called
 
-[PDF](../pdf/mette/EFTA00709627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00709627.pdf)
+[PDF](../../pdf/mette/EFTA00709627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00709627.pdf)
 
 ---
 
@@ -28966,7 +28966,7 @@ Just called
 
 should i have mette for tea
 
-[PDF](../pdf/mette/EFTA00934481.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934481.pdf)
+[PDF](../../pdf/mette/EFTA00934481.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934481.pdf)
 
 ---
 
@@ -28980,7 +28980,7 @@ should i have mette for tea
 
 Just called
 
-[PDF](../pdf/mette/EFTA01881730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881730.pdf)
+[PDF](../../pdf/mette/EFTA01881730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881730.pdf)
 
 ---
 
@@ -28994,7 +28994,7 @@ Just called
 
 Just called
 
-[PDF](../pdf/mette/EFTA01984788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984788.pdf)
+[PDF](../../pdf/mette/EFTA01984788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984788.pdf)
 
 ---
 
@@ -29008,7 +29008,7 @@ Just called
 
 
 
-[PDF](../pdf/mette/EFTA01881502.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881502.pdf)
+[PDF](../../pdf/mette/EFTA01881502.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881502.pdf)
 
 ---
 
@@ -29022,7 +29022,7 @@ Just called
 
 cell or
 
-[PDF](../pdf/mette/EFTA00934474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934474.pdf)
+[PDF](../../pdf/mette/EFTA00934474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934474.pdf)
 
 ---
 
@@ -29062,7 +29062,7 @@ Subject:
 
 will mette be in ny with you
 
-[PDF](../pdf/mette/EFTA00630260.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00630260.pdf)
+[PDF](../../pdf/mette/EFTA00630260.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00630260.pdf)
 
 ---
 
@@ -29102,7 +29102,7 @@ Subject: =o:p>
 
 will mette be in ny with you=br clear=all>
 
-[PDF](../pdf/mette/EFTA01768308.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01768308.pdf)
+[PDF](../../pdf/mette/EFTA01768308.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01768308.pdf)
 
 ---
 
@@ -29116,7 +29116,7 @@ will mette be in ny with you=br clear=all>
 
 will mette be in ny with you
 
-[PDF](../pdf/mette/EFTA00934838.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934838.pdf)
+[PDF](../../pdf/mette/EFTA00934838.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934838.pdf)
 
 ---
 
@@ -29130,7 +29130,7 @@ will mette be in ny with you
 
 
 
-[PDF](../pdf/mette/EFTA01883102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883102.pdf)
+[PDF](../../pdf/mette/EFTA01883102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883102.pdf)
 
 ---
 
@@ -29144,7 +29144,7 @@ will mette be in ny with you
 
 I will remind you This Friday night, May 4th about Mette, Boris.
 
-[PDF](../pdf/mette/EFTA00656237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656237.pdf)
+[PDF](../../pdf/mette/EFTA00656237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656237.pdf)
 
 ---
 
@@ -29158,7 +29158,7 @@ I will remind you This Friday night, May 4th about Mette, Boris.
 
 I will remind you This Friday night, May 4th about Mette, Boris.
 
-[PDF](../pdf/mette/EFTA00414407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414407.pdf)
+[PDF](../../pdf/mette/EFTA00414407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414407.pdf)
 
 ---
 
@@ -29172,7 +29172,7 @@ I will remind you This Friday night, May 4th about Mette, Boris.
 
 remind me on friday night re mette, boris
 
-[PDF](../pdf/mette/EFTA00933697.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933697.pdf)
+[PDF](../../pdf/mette/EFTA00933697.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933697.pdf)
 
 ---
 
@@ -29186,7 +29186,7 @@ remind me on friday night re mette, boris
 
 remind me on friday night re mette, boris
 
-[PDF](../pdf/mette/EFTA00414395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414395.pdf)
+[PDF](../../pdf/mette/EFTA00414395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414395.pdf)
 
 ---
 
@@ -29200,7 +29200,7 @@ remind me on friday night re mette, boris
 
 I will remind you This Friday night, May 4th about Mette, Boris.
 
-[PDF](../pdf/mette/EFTA01993498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01993498.pdf)
+[PDF](../../pdf/mette/EFTA01993498.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01993498.pdf)
 
 ---
 
@@ -29214,7 +29214,7 @@ I will remind you This Friday night, May 4th about Mette, Boris.
 
 
 
-[PDF](../pdf/mette/EFTA01885829.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885829.pdf)
+[PDF](../../pdf/mette/EFTA01885829.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01885829.pdf)
 
 ---
 
@@ -29228,7 +29228,7 @@ I will remind you This Friday night, May 4th about Mette, Boris.
 
 no rush, i need to talk about sam, vienna, mette, melz.
 
-[PDF](../pdf/mette/EFTA00933688.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933688.pdf)
+[PDF](../../pdf/mette/EFTA00933688.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933688.pdf)
 
 ---
 
@@ -29242,7 +29242,7 @@ no rush, i need to talk about sam, vienna, mette, melz.
 
 no rush, i need to talk about sam, vienna, mette, melz.
 
-[PDF](../pdf/mette/EFTA01883738.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883738.pdf)
+[PDF](../../pdf/mette/EFTA01883738.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883738.pdf)
 
 ---
 
@@ -29258,7 +29258,7 @@ I just thought she might know interesting girls/people
 
 Sony for all the typos .
 
-[PDF](../pdf/mette/EFTA00715585.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00715585.pdf)
+[PDF](../../pdf/mette/EFTA00715585.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00715585.pdf)
 
 ---
 
@@ -29274,7 +29274,7 @@ I just thought she might know interesting girls/people
 
 Sorry for all the typos .
 
-[PDF](../pdf/mette/EFTA01870852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01870852.pdf)
+[PDF](../../pdf/mette/EFTA01870852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01870852.pdf)
 
 ---
 
@@ -29312,7 +29312,7 @@ Subject:
 
 should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 
-[PDF](../pdf/mette/EFTA00660058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00660058.pdf)
+[PDF](../../pdf/mette/EFTA00660058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00660058.pdf)
 
 ---
 
@@ -29326,7 +29326,7 @@ should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 
 should we go to nonvay befoere vienna ? , can mette orgaine intersting dinner?
 
-[PDF](../pdf/mette/EFTA00933230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933230.pdf)
+[PDF](../../pdf/mette/EFTA00933230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933230.pdf)
 
 ---
 
@@ -29366,7 +29366,7 @@ Subject:
 
 should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 
-[PDF](../pdf/mette/EFTA02024923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024923.pdf)
+[PDF](../../pdf/mette/EFTA02024923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024923.pdf)
 
 ---
 
@@ -29380,7 +29380,7 @@ should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 
 
 
-[PDF](../pdf/mette/EFTA01870153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01870153.pdf)
+[PDF](../../pdf/mette/EFTA01870153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01870153.pdf)
 
 ---
 
@@ -29396,7 +29396,7 @@ ny, today isalnd tomororww
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00933821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933821.pdf)
+[PDF](../../pdf/mette/EFTA00933821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933821.pdf)
 
 ---
 
@@ -29482,7 +29482,7 @@ Subject:
 
 highlights?
 
-[PDF](../pdf/mette/EFTA01845388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388.pdf)
+[PDF](../../pdf/mette/EFTA01845388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388.pdf)
 
 ---
 
@@ -29568,7 +29568,7 @@ Subject:
 
 highlights?
 
-[PDF](../pdf/mette/EFTA01845388-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388-1.pdf)
+[PDF](../../pdf/mette/EFTA01845388-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388-1.pdf)
 
 ---
 
@@ -29654,7 +29654,7 @@ Subject:
 
 highlights?
 
-[PDF](../pdf/mette/EFTA01989089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01989089.pdf)
+[PDF](../../pdf/mette/EFTA01989089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01989089.pdf)
 
 ---
 
@@ -29700,7 +29700,7 @@ Subject:
 
 highlights?
 
-[PDF](../pdf/mette/EFTA00928360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00928360.pdf)
+[PDF](../../pdf/mette/EFTA00928360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00928360.pdf)
 
 ---
 
@@ -29750,7 +29750,7 @@ Subject:
 
 highlights?
 
-[PDF](../pdf/mette/EFTA02035061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035061.pdf)
+[PDF](../../pdf/mette/EFTA02035061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035061.pdf)
 
 ---
 
@@ -29802,7 +29802,7 @@ EFTA01846769
 
 highlights?
 
-[PDF](../pdf/mette/EFTA01846769.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01846769.pdf)
+[PDF](../../pdf/mette/EFTA01846769.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01846769.pdf)
 
 ---
 
@@ -29818,7 +29818,7 @@ I have great stories, for you„ re my trip„ i am also told ny dick merkin tha
 
 with bill. and talked about me,
 
-[PDF](../pdf/mette/EFTA01844963.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01844963.pdf)
+[PDF](../../pdf/mette/EFTA01844963.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01844963.pdf)
 
 ---
 
@@ -29848,7 +29848,7 @@ How are you?
 
 EFTA00687038
 
-[PDF](../pdf/mette/EFTA00687038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687038.pdf)
+[PDF](../../pdf/mette/EFTA00687038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687038.pdf)
 
 ---
 
@@ -29882,7 +29882,7 @@ EFTA_R1_00541488
 
 EFTA02031380
 
-[PDF](../pdf/mette/EFTA02031380.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031380.pdf)
+[PDF](../../pdf/mette/EFTA02031380.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031380.pdf)
 
 ---
 
@@ -29914,7 +29914,7 @@ EFTA_R1_00233577
 
 EFTA01844847
 
-[PDF](../pdf/mette/EFTA01844847.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01844847.pdf)
+[PDF](../../pdf/mette/EFTA01844847.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01844847.pdf)
 
 ---
 
@@ -29952,7 +29952,7 @@ EFTA_R1_01395361
 
 EFTA02380852
 
-[PDF](../pdf/mette/EFTA02380852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02380852.pdf)
+[PDF](../../pdf/mette/EFTA02380852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02380852.pdf)
 
 ---
 
@@ -30032,7 +30032,7 @@ EFTA_R1_01302863
 
 EFTA02339617
 
-[PDF](../pdf/mette/EFTA02339616.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02339616.pdf)
+[PDF](../../pdf/mette/EFTA02339616.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02339616.pdf)
 
 ---
 
@@ -30046,7 +30046,7 @@ EFTA02339617
 
 road less traveled had no snow
 
-[PDF](../pdf/kronprinsessen/EFTA00926979.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00926979.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00926979.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00926979.pdf)
 
 ---
 
@@ -30060,7 +30060,7 @@ road less traveled had no snow
 
 joy
 
-[PDF](../pdf/kronprinsessen/EFTA00926970.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00926970.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00926970.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00926970.pdf)
 
 ---
 
@@ -30088,7 +30088,7 @@ Surf
 
 Soon
 
-[PDF](../pdf/kronprinsessen/EFTA00656629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656629.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656629.pdf)
 
 ---
 
@@ -30102,7 +30102,7 @@ Soon
 
 road less traveled had no snow
 
-[PDF](../pdf/kronprinsessen/EFTA01848975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848975.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01848975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848975.pdf)
 
 ---
 
@@ -30116,7 +30116,7 @@ road less traveled had no snow
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA00656628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656628.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656628.pdf)
 
 ---
 
@@ -30130,7 +30130,7 @@ Yes
 
 Jeff Island ?
 
-[PDF](../pdf/kronprinsessen/EFTA00656623.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656623.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656623.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656623.pdf)
 
 ---
 
@@ -30144,7 +30144,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00656612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656612.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656612.pdf)
 
 ---
 
@@ -30158,7 +30158,7 @@ Jeff Island ?
 
 joy
 
-[PDF](../pdf/kronprinsessen/EFTA01848544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848544.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01848544.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848544.pdf)
 
 ---
 
@@ -30186,7 +30186,7 @@ Surf
 
 Soon
 
-[PDF](../pdf/kronprinsessen/EFTA01772445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772445.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772445.pdf)
 
 ---
 
@@ -30214,7 +30214,7 @@ Surf
 
 Soon
 
-[PDF](../pdf/kronprinsessen/EFTA02359940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02359940.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02359940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02359940.pdf)
 
 ---
 
@@ -30242,7 +30242,7 @@ Surf
 
 Soon
 
-[PDF](../pdf/kronprinsessen/EFTA02548407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548407.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02548407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548407.pdf)
 
 ---
 
@@ -30274,7 +30274,7 @@ EFTA_R1_00547939
 
 EFTA02035445
 
-[PDF](../pdf/kronprinsessen/EFTA02035445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035445.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02035445.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035445.pdf)
 
 ---
 
@@ -30292,7 +30292,7 @@ EFTA_R1_00479890
 
 EFTA01988151
 
-[PDF](../pdf/kronprinsessen/EFTA01988151.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988151.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01988151.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988151.pdf)
 
 ---
 
@@ -30306,7 +30306,7 @@ EFTA01988151
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA02548393.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548393.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02548393.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548393.pdf)
 
 ---
 
@@ -30320,7 +30320,7 @@ Yes
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA02359898.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02359898.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02359898.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02359898.pdf)
 
 ---
 
@@ -30334,7 +30334,7 @@ Yes
 
 Yes
 
-[PDF](../pdf/kronprinsessen/EFTA01772430.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772430.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772430.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772430.pdf)
 
 ---
 
@@ -30352,7 +30352,7 @@ EFTA_R1_00548409
 
 EFTA02035739
 
-[PDF](../pdf/kronprinsessen/EFTA02035739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035739.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02035739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035739.pdf)
 
 ---
 
@@ -30366,7 +30366,7 @@ EFTA02035739
 
 Jeff Island ?
 
-[PDF](../pdf/kronprinsessen/EFTA02360936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02360936.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02360936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02360936.pdf)
 
 ---
 
@@ -30380,7 +30380,7 @@ Jeff Island ?
 
 Jeff Island ?
 
-[PDF](../pdf/kronprinsessen/EFTA02548374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548374.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02548374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548374.pdf)
 
 ---
 
@@ -30394,7 +30394,7 @@ Jeff Island ?
 
 Jeff Island ?
 
-[PDF](../pdf/kronprinsessen/EFTA01772360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772360.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772360.pdf)
 
 ---
 
@@ -30408,7 +30408,7 @@ Jeff Island ?
 
 Jeff Island ?
 
-[PDF](../pdf/kronprinsessen/EFTA02695518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02695518.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02695518.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02695518.pdf)
 
 ---
 
@@ -30422,7 +30422,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02548334.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548334.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02548334.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548334.pdf)
 
 ---
 
@@ -30436,7 +30436,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02360790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02360790.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02360790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02360790.pdf)
 
 ---
 
@@ -30450,7 +30450,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02695490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02695490.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02695490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02695490.pdf)
 
 ---
 
@@ -30464,7 +30464,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01770634.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01770634.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01770634.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01770634.pdf)
 
 ---
 
@@ -30478,7 +30478,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01848265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848265.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01848265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848265.pdf)
 
 ---
 
@@ -30492,7 +30492,7 @@ Jeff Island ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01988055.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988055.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01988055.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988055.pdf)
 
 ---
 
@@ -30516,7 +30516,7 @@ paris last week
 
 costa rica next week
 
-[PDF](../pdf/kronprinsessen/EFTA00925489.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00925489.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00925489.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00925489.pdf)
 
 ---
 
@@ -30540,7 +30540,7 @@ paris last week
 
 costa rica next week
 
-[PDF](../pdf/kronprinsessen/EFTA02031426.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031426.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02031426.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02031426.pdf)
 
 ---
 
@@ -30564,7 +30564,7 @@ paris last week
 
 costa rica next week
 
-[PDF](../pdf/kronprinsessen/EFTA01848952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848952.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01848952.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848952.pdf)
 
 ---
 
@@ -30578,7 +30578,7 @@ costa rica next week
 
 new york?
 
-[PDF](../pdf/kronprinsessen/EFTA00925454.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00925454.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00925454.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00925454.pdf)
 
 ---
 
@@ -30592,7 +30592,7 @@ new york?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01846773.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01846773.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01846773.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01846773.pdf)
 
 ---
 
@@ -30632,7 +30632,7 @@ Sorry for all the typos .
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00672678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00672678.pdf)
+[PDF](../../pdf/mette/EFTA00672678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00672678.pdf)
 
 ---
 
@@ -30664,7 +30664,7 @@ Sony for all the typos .
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA01991647.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991647.pdf)
+[PDF](../../pdf/mette/EFTA01991647.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991647.pdf)
 
 ---
 
@@ -30678,7 +30678,7 @@ Sony for all the typos .
 
 On my way to Boston to fly to Miami earlybird.
 
-[PDF](../pdf/kronprinsessen/EFTA00655882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00655882.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00655882.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00655882.pdf)
 
 ---
 
@@ -30696,7 +30696,7 @@ Den 16. nov. 2011 Id. 02:14 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 ny?
 
-[PDF](../pdf/kronprinsessen/EFTA01739632.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01739632.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01739632.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01739632.pdf)
 
 ---
 
@@ -30714,7 +30714,7 @@ Den 16. nov. 201 I Id. 02:14 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 ny?
 
-[PDF](../pdf/kronprinsessen/EFTA02036446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02036446.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02036446.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02036446.pdf)
 
 ---
 
@@ -30728,7 +30728,7 @@ ny?
 
 ny?
 
-[PDF](../pdf/kronprinsessen/EFTA00924654.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00924654.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00924654.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00924654.pdf)
 
 ---
 
@@ -30742,7 +30742,7 @@ ny?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01849704.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01849704.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01849704.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01849704.pdf)
 
 ---
 
@@ -30758,7 +30758,7 @@ you should schedule you trip to my island , did you tell anyone about our mette 
 
 people?
 
-[PDF](../pdf/mette/EFTA00923505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923505.pdf)
+[PDF](../../pdf/mette/EFTA00923505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923505.pdf)
 
 ---
 
@@ -30802,7 +30802,7 @@ On Tue, Nov 15, 2011 at 7:28 AM, Boris Nikolic rote:
 
 >
 
-[PDF](../pdf/mette/EFTA02027947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02027947.pdf)
+[PDF](../../pdf/mette/EFTA02027947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02027947.pdf)
 
 ---
 
@@ -30818,7 +30818,7 @@ you should schedule you trip to my island , did you tell anyone about our mette 
 
 Marco etc. ygl people?
 
-[PDF](../pdf/mette/EFTA01850328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850328.pdf)
+[PDF](../../pdf/mette/EFTA01850328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850328.pdf)
 
 ---
 
@@ -30846,7 +30846,7 @@ Subject:
 
 mette is a mess
 
-[PDF](../pdf/mette/EFTA00656705.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656705.pdf)
+[PDF](../../pdf/mette/EFTA00656705.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656705.pdf)
 
 ---
 
@@ -30874,7 +30874,7 @@ Subject:
 
 melte is a mess
 
-[PDF](../pdf/mette/EFTA02020770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02020770.pdf)
+[PDF](../../pdf/mette/EFTA02020770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02020770.pdf)
 
 ---
 
@@ -30902,7 +30902,7 @@ Subject:
 
 melte is a mess
 
-[PDF](../pdf/mette/EFTA01850019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850019.pdf)
+[PDF](../../pdf/mette/EFTA01850019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850019.pdf)
 
 ---
 
@@ -30916,7 +30916,7 @@ melte is a mess
 
 
 
-[PDF](../pdf/mette/EFTA01851476.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01851476.pdf)
+[PDF](../../pdf/mette/EFTA01851476.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01851476.pdf)
 
 ---
 
@@ -30938,7 +30938,7 @@ Will send you more later in day
 
 Boris
 
-[PDF](../pdf/mette/EFTA00708942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00708942.pdf)
+[PDF](../../pdf/mette/EFTA00708942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00708942.pdf)
 
 ---
 
@@ -30968,7 +30968,7 @@ raising my goddaughter. Bill i believe will find her interesting. the rest of th
 
 except for PAul who is from tennessee . and can trade but not think. likes to hear himself talk.
 
-[PDF](../pdf/mette/EFTA02014444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02014444.pdf)
+[PDF](../../pdf/mette/EFTA02014444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02014444.pdf)
 
 ---
 
@@ -30982,7 +30982,7 @@ except for PAul who is from tennessee . and can trade but not think. likes to he
 
 Big big Apple
 
-[PDF](../pdf/kronprinsessen/EFTA00656768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656768.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656768.pdf)
 
 ---
 
@@ -30996,7 +30996,7 @@ Big big Apple
 
 Big big Apple
 
-[PDF](../pdf/kronprinsessen/EFTA02029871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02029871.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02029871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02029871.pdf)
 
 ---
 
@@ -31010,7 +31010,7 @@ Big big Apple
 
 wherea reyou
 
-[PDF](../pdf/kronprinsessen/EFTA00923037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923037.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00923037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923037.pdf)
 
 ---
 
@@ -31024,7 +31024,7 @@ wherea reyou
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01848822.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848822.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01848822.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848822.pdf)
 
 ---
 
@@ -31044,7 +31044,7 @@ I would hate that life — it is much worse than what we thought.
 
 EFTA00719946
 
-[PDF](../pdf/mette/EFTA00719946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00719946.pdf)
+[PDF](../../pdf/mette/EFTA00719946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00719946.pdf)
 
 ---
 
@@ -31068,7 +31068,7 @@ EFTA_R1_00550659
 
 EFTA02037201
 
-[PDF](../pdf/mette/EFTA02037201.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02037201.pdf)
+[PDF](../../pdf/mette/EFTA02037201.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02037201.pdf)
 
 ---
 
@@ -31092,7 +31092,7 @@ EFTA_R1_00030613
 
 EFTA01740931
 
-[PDF](../pdf/mette/EFTA01740931.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01740931.pdf)
+[PDF](../../pdf/mette/EFTA01740931.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01740931.pdf)
 
 ---
 
@@ -31114,7 +31114,7 @@ EFTA_R1_00242517
 
 EFTA01850016
 
-[PDF](../pdf/mette/EFTA01850016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850016.pdf)
+[PDF](../../pdf/mette/EFTA01850016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850016.pdf)
 
 ---
 
@@ -31138,7 +31138,7 @@ Emne: Re:
 
 You havent gotten any of my replies?
 
-[PDF](../pdf/kronprinsessen/EFTA00627460.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627460.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00627460.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00627460.pdf)
 
 ---
 
@@ -31152,7 +31152,7 @@ You havent gotten any of my replies?
 
 You havent gotten any of my replies?
 
-[PDF](../pdf/kronprinsessen/EFTA00686385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00686385.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00686385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00686385.pdf)
 
 ---
 
@@ -31166,7 +31166,7 @@ You havent gotten any of my replies?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02019145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02019145.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02019145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02019145.pdf)
 
 ---
 
@@ -31180,7 +31180,7 @@ You havent gotten any of my replies?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01849202.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01849202.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01849202.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01849202.pdf)
 
 ---
 
@@ -31194,7 +31194,7 @@ You havent gotten any of my replies?
 
 great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
 
-[PDF](../pdf/mette/EFTA00922922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922922.pdf)
+[PDF](../../pdf/mette/EFTA00922922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922922.pdf)
 
 ---
 
@@ -31208,7 +31208,7 @@ great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
 
 what bodily fluid is sweetness. or is it just the soul
 
-[PDF](../pdf/kronprinsessen/EFTA00922913.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922913.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922913.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922913.pdf)
 
 ---
 
@@ -31222,7 +31222,7 @@ what bodily fluid is sweetness. or is it just the soul
 
 
 
-[PDF](../pdf/mette/EFTA01856751.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856751.pdf)
+[PDF](../../pdf/mette/EFTA01856751.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856751.pdf)
 
 ---
 
@@ -31236,7 +31236,7 @@ what bodily fluid is sweetness. or is it just the soul
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01856453.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856453.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01856453.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856453.pdf)
 
 ---
 
@@ -31250,7 +31250,7 @@ what bodily fluid is sweetness. or is it just the soul
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA00922876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922876.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922876.pdf)
 
 ---
 
@@ -31264,7 +31264,7 @@ what bodily fluid is sweetness. or is it just the soul
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01855483.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01855483.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01855483.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01855483.pdf)
 
 ---
 
@@ -31282,7 +31282,7 @@ I will
 
 Did u enjoy sweetness ?
 
-[PDF](../pdf/kronprinsessen/EFTA00687581.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687581.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00687581.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687581.pdf)
 
 ---
 
@@ -31298,7 +31298,7 @@ like sweetness, you can read the nabokov story of siamiese twins.. two people jo
 
 views.
 
-[PDF](../pdf/kronprinsessen/EFTA00922861.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922861.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922861.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922861.pdf)
 
 ---
 
@@ -31316,7 +31316,7 @@ I will
 
 Did u enjoy sweetness ?
 
-[PDF](../pdf/kronprinsessen/EFTA01773796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773796.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01773796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773796.pdf)
 
 ---
 
@@ -31334,7 +31334,7 @@ I will
 
 Did u enjoy sweetness ?
 
-[PDF](../pdf/kronprinsessen/EFTA02013755.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02013755.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02013755.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02013755.pdf)
 
 ---
 
@@ -31348,7 +31348,7 @@ Did u enjoy sweetness ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01854025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854025.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01854025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854025.pdf)
 
 ---
 
@@ -31364,7 +31364,7 @@ understood
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00922809.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922809.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922809.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922809.pdf)
 
 ---
 
@@ -31382,7 +31382,7 @@ But there is always new beginnings
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00687594.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687594.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00687594.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687594.pdf)
 
 ---
 
@@ -31398,7 +31398,7 @@ I can see you have yet to find a place of peace
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00922805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922805.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922805.pdf)
 
 ---
 
@@ -31418,7 +31418,7 @@ Enough to still be able to chose the light
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00656874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656874.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656874.pdf)
 
 ---
 
@@ -31436,7 +31436,7 @@ damage it. like scratching a line on a beautiful car.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00922801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922801.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922801.pdf)
 
 ---
 
@@ -31456,7 +31456,7 @@ Probably not correct English either
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00656829.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656829.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00656829.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656829.pdf)
 
 ---
 
@@ -31474,7 +31474,7 @@ i hope that you understand that "what and why" is english that is incorrect. the
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00922796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922796.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922796.pdf)
 
 ---
 
@@ -31490,7 +31490,7 @@ understood
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01852610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852610.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01852610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852610.pdf)
 
 ---
 
@@ -31508,7 +31508,7 @@ But there is always new beginnings
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02023885.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02023885.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02023885.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02023885.pdf)
 
 ---
 
@@ -31526,7 +31526,7 @@ But there is always new beginnings
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01772256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772256.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772256.pdf)
 
 ---
 
@@ -31566,7 +31566,7 @@ Probably not correct English either
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01852522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852522.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01852522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852522.pdf)
 
 ---
 
@@ -31586,7 +31586,7 @@ Enough to still be able to chose the light
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02024303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024303.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02024303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024303.pdf)
 
 ---
 
@@ -31604,7 +31604,7 @@ means to damage it. like scratching a line on a beautiful car.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01852235.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852235.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01852235.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852235.pdf)
 
 ---
 
@@ -31624,7 +31624,7 @@ Probably not correct English either
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01772496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772496.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772496.pdf)
 
 ---
 
@@ -31644,7 +31644,7 @@ Probably not correct English either
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02024016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024016.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02024016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024016.pdf)
 
 ---
 
@@ -31662,7 +31662,7 @@ images, nothing left to the imagination.
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01854814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854814.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01854814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854814.pdf)
 
 ---
 
@@ -31678,7 +31678,7 @@ EFTA_R1_00488063
 
 EFTA01994170
 
-[PDF](../pdf/kronprinsessen/EFTA01994170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01994170.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01994170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01994170.pdf)
 
 ---
 
@@ -31692,7 +31692,7 @@ EFTA01994170
 
 would you like to stop by for a cofee anytime before I pm. I now see what and why you like these books.
 
-[PDF](../pdf/kronprinsessen/EFTA00922768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922768.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922768.pdf)
 
 ---
 
@@ -31762,7 +31762,7 @@ Mm
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA02026475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026475.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02026475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026475.pdf)
 
 ---
 
@@ -31778,7 +31778,7 @@ So what and why do I like them ?
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01772463.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772463.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772463.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772463.pdf)
 
 ---
 
@@ -31792,7 +31792,7 @@ So what and why do I like them ?
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA01853728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01853728.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01853728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01853728.pdf)
 
 ---
 
@@ -31808,7 +31808,7 @@ Sweetness is a better translation ..thanks
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA01772997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772997.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772997.pdf)
 
 ---
 
@@ -31828,7 +31828,7 @@ it would be like trying to read with my eyes closed.
 
 http://www.amazon.comi Lectures-Literature-Vladimir-Nabokov/dp/0 156027755
 
-[PDF](../pdf/kronprinsessen/EFTA02027828.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02027828.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02027828.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02027828.pdf)
 
 ---
 
@@ -31842,7 +31842,7 @@ http://www.amazon.comi Lectures-Literature-Vladimir-Nabokov/dp/0 156027755
 
 Hey where r u ?
 
-[PDF](../pdf/kronprinsessen/EFTA01772835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772835.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772835.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772835.pdf)
 
 ---
 
@@ -31856,7 +31856,7 @@ Hey where r u ?
 
 It sounds like u should try!!!
 
-[PDF](../pdf/kronprinsessen/EFTA00638154.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00638154.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00638154.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00638154.pdf)
 
 ---
 
@@ -31872,7 +31872,7 @@ it would be like trying to read with my eyes closed.
 
 Nabokov/dp/0 156027755
 
-[PDF](../pdf/kronprinsessen/EFTA00922728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922728.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922728.pdf)
 
 ---
 
@@ -31910,7 +31910,7 @@ See u later
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA00922712.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922712.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00922712.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922712.pdf)
 
 ---
 
@@ -31924,7 +31924,7 @@ Mm
 
 It sounds like u should try!!!
 
-[PDF](../pdf/kronprinsessen/EFTA01772005.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772005.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01772005.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772005.pdf)
 
 ---
 
@@ -31940,7 +31940,7 @@ It sounds like u should try!!!
 
 tz„,.„
 
-[PDF](../pdf/kronprinsessen/EFTA01988076.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988076.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01988076.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988076.pdf)
 
 ---
 
@@ -31956,7 +31956,7 @@ it would be like trying to read with my eyes closed. http://www.amazon.conaectur
 
 V ladimir-Nabokoviclp/0 156027755
 
-[PDF](../pdf/kronprinsessen/EFTA01854022.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854022.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01854022.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854022.pdf)
 
 ---
 
@@ -31994,7 +31994,7 @@ See u later
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA02022862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022862.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02022862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022862.pdf)
 
 ---
 
@@ -32028,7 +32028,7 @@ See u=later
 
 Mm
 
-[PDF](../pdf/kronprinsessen/EFTA01773663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773663.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01773663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773663.pdf)
 
 ---
 
@@ -32042,7 +32042,7 @@ Mm
 
 no emails yesterday, call me 331 441 70210
 
-[PDF](../pdf/mette/EFTA00910457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00910457.pdf)
+[PDF](../../pdf/mette/EFTA00910457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00910457.pdf)
 
 ---
 
@@ -32056,7 +32056,7 @@ no emails yesterday, call me 331 441 70210
 
 no emails yesterday, call me
 
-[PDF](../pdf/mette/EFTA01866879.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01866879.pdf)
+[PDF](../../pdf/mette/EFTA01866879.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01866879.pdf)
 
 ---
 
@@ -32112,7 +32112,7 @@ EFTA_R1_00093557
 
 EFTA01777604
 
-[PDF](../pdf/mette/EFTA01777604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01777604.pdf)
+[PDF](../../pdf/mette/EFTA01777604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01777604.pdf)
 
 ---
 
@@ -32144,7 +32144,7 @@ EFTA_R1_00528017
 
 EFTA02021990
 
-[PDF](../pdf/mette/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
+[PDF](../../pdf/mette/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
 
 ---
 
@@ -32176,7 +32176,7 @@ EFTA_R1_00528017
 
 EFTA02021990
 
-[PDF](../pdf/mette-marit/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
+[PDF](../../pdf/mette-marit/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
 
 ---
 
@@ -32190,7 +32190,7 @@ EFTA02021990
 
 
 
-[PDF](../pdf/mette/EFTA01068342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01068342.pdf)
+[PDF](../../pdf/mette/EFTA01068342.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01068342.pdf)
 
 ---
 
@@ -32290,7 +32290,7 @@ EFTA00774847
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00774846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00774846.pdf)
+[PDF](../../pdf/mette/EFTA00774846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00774846.pdf)
 
 ---
 
@@ -32390,7 +32390,7 @@ EFTA00774847
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette-marit/EFTA00774846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00774846.pdf)
+[PDF](../../pdf/mette-marit/EFTA00774846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00774846.pdf)
 
 ---
 
@@ -32404,7 +32404,7 @@ EFTA00774847
 
 
 
-[PDF](../pdf/kronprinsessen/EFTA02707249.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02707249.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA02707249.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02707249.pdf)
 
 ---
 
@@ -32418,7 +32418,7 @@ EFTA00774847
 
 
 
-[PDF](../pdf/mette/EFTA01748770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01748770.pdf)
+[PDF](../../pdf/mette/EFTA01748770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01748770.pdf)
 
 ---
 

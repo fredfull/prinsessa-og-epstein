@@ -30,7 +30,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/kronprinsessen/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 
 ---
 
@@ -64,7 +64,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
  ** Pages have been removed, see source for all pages **
 
-[PDF](../pdf/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
+[PDF](../../pdf/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 
 ---
 
@@ -78,7 +78,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
 I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
-[PDF](../pdf/kronprinsessen/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
 
 ---
 
@@ -92,7 +92,7 @@ I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
 I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
-[PDF](../pdf/mette/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
+[PDF](../../pdf/mette/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
 
 ---
 
@@ -106,7 +106,7 @@ I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
 Boris if you stand me up on this one I will have a hit man sent your way
 
-[PDF](../pdf/kronprinsessen/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
 
 ---
 
@@ -120,7 +120,7 @@ Boris if you stand me up on this one I will have a hit man sent your way
 
 Boris if you stand me up on this one I will have a hit man sent your way
 
-[PDF](../pdf/mette/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
+[PDF](../../pdf/mette/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
 
 ---
 
@@ -158,7 +158,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/kronprinsessen/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
+[PDF](../../pdf/kronprinsessen/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
 
 ---
 
@@ -196,7 +196,7 @@ Subject: Re:
 
 Breakfast??
 
-[PDF](../pdf/mette/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
+[PDF](../../pdf/mette/EFTA01913091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913091.pdf)
 
 ---
 
