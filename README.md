@@ -16,3 +16,15 @@ Correspondence sorted by sender-receiver in csv can be found here: [/csv/](/csv)
 Copy of PDFs used are located here: [/pdf](pdf)
 
 *A significant portion of the PDFs can not be parsed correctly by the script. Stats for successfull/failed pdfs can be found here: [/stats.json](stats.json)
+
+
+# Development
+
+## Install
+
+```
+python3 -m venv venv
+source venv/bin/activate
+pip install -r scripts/requirements.txt
+./test_run.sh
+```

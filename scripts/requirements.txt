@@ -1,2 +1,6 @@
 pdfplumber
 bs4
+python-dateutil
+pandas
+matplotlib
+numpy
