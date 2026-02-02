@@ -2,16 +2,13 @@
 
 ### 2019-12-03T16:45:19+0000
 
-<table>
-<tr>
-<td align='left'> **From:** ' (NY) (FBI) </td>
-<td align='right'> **To:** I (NY) (FBI)" I (NY) (FBI) </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Fwd: FW: Question about Jeffrey Epstein and</td>
-</tr>
-<tr>
-<td colspan='2'>Importance: Normal 
+**From:** ' (NY) (FBI)
+
+**To:** I (NY) (FBI)" I (NY) (FBI)
+
+**Subject**: Fwd: FW: Question about Jeffrey Epstein and
+
+Importance: Normal 
 See below. 
 Forwarded message 
 From: NPO f"r 
@@ -42,94 +39,79 @@ If you could please get back to me at your earliest convenience, I would greatly
 Best regards 
 Runa Fjellanger 
 EFTA00148002 
-EFTA00148003</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA00148002.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)</td>
-</tr>
-</table>### 2014-06-16T10:22:34+0000
+EFTA00148003
 
-<table>
-<tr>
-<td align='left'> **From:** H.K.H. ICronprinsessen" ctl </td>
-<td align='right'> **To:** Jeffrey E." jeevacation@gmail.com </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Re:</td>
-</tr>
-<tr>
-<td colspan='2'>Wherever u r awake</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA00695450.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695450.pdf)</td>
-</tr>
-</table>### 2014-06-14T11:40:38+0000
+[PDF](../test/pdf/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
 
-<table>
-<tr>
-<td align='left'> **From:** H.K.H. ICronprinsessen" </td>
-<td align='right'> **To:** Jeffrey E." jeevacation@gmail.com </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Re:</td>
-</tr>
-<tr>
-<td colspan='2'>Call me</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA00695458.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695458.pdf)</td>
-</tr>
-</table>### 2013-06-22T14:05:48+0000
+---
 
-<table>
-<tr>
-<td align='left'> **From:** Jeffrey Epstein leevacation@gmail.com </td>
-<td align='right'> **To:** H.K.H. Mette Kronprinsessen </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Re: Princess Mette</td>
-</tr>
-<tr>
-<td colspan='2'>To: 
+### 2014-06-16T10:22:34+0000
+
+**From:** H.K.H. ICronprinsessen" ctl
+
+**To:** Jeffrey E." jeevacation@gmail.com
+
+**Subject**: Re:
+
+Wherever u r awake
+
+[PDF](../test/pdf/EFTA00695450.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695450.pdf)
+
+---
+
+### 2014-06-14T11:40:38+0000
+
+**From:** H.K.H. ICronprinsessen"
+
+**To:** Jeffrey E." jeevacation@gmail.com
+
+**Subject**: Re:
+
+Call me
+
+[PDF](../test/pdf/EFTA00695458.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00695458.pdf)
+
+---
+
+### 2013-06-22T14:05:48+0000
+
+**From:** Jeffrey Epstein leevacation@gmail.com
+
+**To:** H.K.H. Mette Kronprinsessen
+
+**Subject**: Re: Princess Mette
+
+To: 
 Cc: "H. K.H. Kronprinsessen" I MM 
-I think she has TGE wrong Monday , ask her if this thurs works</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA02135894.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)</td>
-</tr>
-</table>### 2013-01-16T20:21:00+0000
+I think she has TGE wrong Monday , ask her if this thurs works
 
-<table>
-<tr>
-<td align='left'> **From:** H.K.H. Kronprinsessen" ctl </td>
-<td align='right'> **To:** Jeffrey Epstein jeevacation@gmail.com </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Re:</td>
-</tr>
-<tr>
-<td colspan='2'>Yes u?</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA00952562.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952562.pdf)</td>
-</tr>
-</table>### 2012-11-26T22:05:31+0000
+[PDF](../test/pdf/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
 
-<table>
-<tr>
-<td align='left'> **From:** Lesley Groff </td>
-<td align='right'> **To:** Epstein Jeffrey ieevacationRcimail com </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Fwd: Priv & Cont: Nov. 26-30</td>
-</tr>
-<tr>
-<td colspan='2'>Cc: 
+---
+
+### 2013-01-16T20:21:00+0000
+
+**From:** H.K.H. Kronprinsessen" ctl
+
+**To:** Jeffrey Epstein jeevacation@gmail.com
+
+**Subject**: Re:
+
+Yes u?
+
+[PDF](../test/pdf/EFTA00952562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952562.pdf)
+
+---
+
+### 2012-11-26T22:05:31+0000
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey ieevacationRcimail com
+
+**Subject**: Fwd: Priv & Cont: Nov. 26-30
+
+Cc: 
 Barnett , Lynn 
 Fontanilla Lynn and ojo 
 TONIGHT: 
@@ -162,45 +144,38 @@ Daniel Siad's Herme's people: Francois Manalt (Project Manager), Francois Dore
 (General Manager), Pierre Francois Le Poutre (Marketing & Sales Manager) 
 Francois Manalt 
 EFTA_R1_00820823 
-EFTA02154708</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA02154707.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)</td>
-</tr>
-</table>### 2012-10-21T23:27:04+0000
+EFTA02154708
 
-<table>
-<tr>
-<td align='left'> **From:** Jeffrey Epstein jeevacation®gmail.com </td>
-<td align='right'> **To:** H. K.H. Kronprinsessen </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: </td>
-</tr>
-<tr>
-<td colspan='2'>Im planning on nonvay the 15-19 .</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA00945892.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945892.pdf)</td>
-</tr>
-</table>### 2011-10-24T04:27:00+0000
+[PDF](../test/pdf/EFTA02154707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)
 
-<table>
-<tr>
-<td align='left'> **From:** jeffrey epstein jeevacation@gmail.com </td>
-<td align='right'> **To:** H.K.H. Kronprinsessen </td>
-</tr>
-<tr>
-<td colspan='2'>**Subject**: Re: Re:</td>
-</tr>
-<tr>
-<td colspan='2'>Sweetness is a better translation ..thanks
- ** Pages have been removed, see source for all pages **</td>
-</tr>
-<tr>
-<td>[PDF](test/pdf/EFTA01772997.pdf)</td>
-<td>[Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772997.pdf)</td>
-</tr>
-</table>
+---
+
+### 2012-10-21T23:27:04+0000
+
+**From:** Jeffrey Epstein jeevacation®gmail.com
+
+**To:** H. K.H. Kronprinsessen
+
+**Subject**: 
+
+Im planning on nonvay the 15-19 .
+
+[PDF](../test/pdf/EFTA00945892.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00945892.pdf)
+
+---
+
+### 2011-10-24T04:27:00+0000
+
+**From:** jeffrey epstein jeevacation@gmail.com
+
+**To:** H.K.H. Kronprinsessen
+
+**Subject**: Re: Re:
+
+Sweetness is a better translation ..thanks
+ ** Pages have been removed, see source for all pages **
+
+[PDF](../test/pdf/EFTA01772997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772997.pdf)
+
+---
+

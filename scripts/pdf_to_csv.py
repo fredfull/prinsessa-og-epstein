@@ -84,7 +84,16 @@ def parse_first_email(text):
                 clean_text(line[5:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            )
+            ) or "N/A"
+            continue
+
+        # If colon is missing:
+        elif line.lower().startswith("from") and not headers["From"]:
+            headers["From"] = (
+                clean_text(line[4:].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            ) or "N/A"
             continue
 
         # Capture To
@@ -93,46 +102,60 @@ def parse_first_email(text):
                 clean_text(line[3:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            )
+            ) or "N/A"
+            continue
+
+        elif line.lower().startswith("to") and not headers["To"]:
+            headers["To"] = (
+                clean_text(line[2:].strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            ) or "N/A"
             continue
 
         # Capture Sent / Date
+        raw_date = ""
+
         if (
             line.lower().startswith("sent:") or line.lower().startswith("date:")
         ) and not headers["Sent"]:
             raw_date = (
-                clean_text(line.split(":", 1)[1].strip().strip('"'))
+                clean_text((line[5:]).strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
             )
+        elif (
+            line.lower().startswith("sent") or line.lower().startswith("date")
+        ) and not headers["Sent"]:
+            raw_date = (
+                clean_text((line[4:]).strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            )
+        if raw_date:
             utc_date = normalize_date(raw_date)
-            headers["Sent"] = utc_date or raw_date
+            headers["Sent"] = utc_date or raw_date or "N/A"
             continue
 
         # Capture Subject
-        if line.lower().startswith("subject:") and not headers["Subject"]:
-            headers["Subject"] = (
-                clean_text(line.split(":", 1)[1].strip().strip('"'))
+
+        if (line.lower().startswith("subject:")) and not headers["Subject"]:
+            line = (
+                clean_text((line[8:]).strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            )
+            ) or "N/A"
+            headers["Subject"] = line
             continue
 
-        # If the princess has sent the mail and  we reach the norwegian line that is added for replies of the mail, we break:
-        if (
-            headers["From"].lower().find("kronprinsessen") != -1
-            and line.lower().find("den") != -1
-            and line.lower().find("skrev") != -1
-        ):
-            break
-
-        # If the epstein has sent the mail and we reach his disclaimer, we break:
-        if headers["From"].lower().find("epstein") != -1 and (
-            line.lower().find("*****************************") != -1
-            or line.lower().find("the information contained in this communication is")
-            != -1
-        ):
-            break
+        elif (line.lower().startswith("subject")) and not headers["Subject"]:
+            line = (
+                clean_text((line[7:]).strip().strip('"'))
+                .replace(">", "")
+                .replace("<", "")
+            ) or "N/A"
+            headers["Subject"] = line
+            continue
 
         # If all header fields are found, the rest is content baby
         if headers["From"] and headers["To"] and headers["Sent"]:
