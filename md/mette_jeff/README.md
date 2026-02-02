@@ -130,7 +130,7 @@ What number can I reach u on??
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 ??9
 
@@ -158,7 +158,7 @@ What number can I reach u on??
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 we didn't finish conversation
 
@@ -232,7 +232,7 @@ Tomorrow works for me
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 didn;t get to see you, ?
 
@@ -274,7 +274,7 @@ didn;t get to see you, ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 well?
 
@@ -334,7 +334,7 @@ do i get to see you in ny?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 happy national day, hope you are well
 
@@ -362,7 +362,7 @@ happy national day, hope you are well
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 I think you and Ariane will really get along. you share many interests
 
@@ -376,7 +376,7 @@ I think you and Ariane will really get along. you share many interests
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 spoke to boris , glad to hear you are feeling better
 
@@ -576,7 +576,7 @@ Sun or snow?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 i ye been thinking about you how are you feeling. ?
 
@@ -590,7 +590,7 @@ i ye been thinking about you how are you feeling. ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 where for the holidays?
 
@@ -618,7 +618,7 @@ where for the holidays?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 How are you
 
@@ -812,7 +812,7 @@ I have good help here.
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 111
 
@@ -842,7 +842,7 @@ Hope it goes well. If you prefer us hospital help
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 any better?
 
@@ -956,7 +956,7 @@ I could never find anyone to keep up with you!!!
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 have you found my new asst yet. seriously, how are you feeling? . I am interviewing in paris. very difficutl
 
@@ -1184,7 +1184,7 @@ Thanx
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 hope you are feeling better
 
@@ -1246,7 +1246,7 @@ Thanx
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 will i see you tomorw
 
@@ -1274,7 +1274,7 @@ will i see you tomorw
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 I may be here on friday . you looked great , would love to catch up.
 
@@ -1552,7 +1552,7 @@ Yes!!!!
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 Come visit
 
@@ -1580,7 +1580,7 @@ Come visit
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 welcome. I told boris there are a group of swedish female economists coming to the house at 6 tonight , you
 
@@ -1646,7 +1646,7 @@ when?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 when?
 
@@ -1674,7 +1674,7 @@ when?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 when are you free sat sun?
 
@@ -1748,7 +1748,7 @@ what days will you be in?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 what days will you be in?
 
@@ -1900,7 +1900,7 @@ boris
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 thanks
 
@@ -1946,7 +1946,7 @@ EFTA02386200
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 shoppping at530
 
@@ -2142,7 +2142,7 @@ I arrive nxt Thursday 27th staying until following mon afternoon.
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 what days ,
 
@@ -2230,7 +2230,7 @@ what days ,
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 sounds like a fun trip you are about to embark on
 
@@ -2332,7 +2332,7 @@ lm in Houston !
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 you are missed on this side of the atlanitc
 
@@ -2518,7 +2518,7 @@ In Florence & Paris
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 any plans for the states?
 
@@ -2628,7 +2628,7 @@ How r u ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 why have i not heard from you, ?
 
@@ -2706,7 +2706,7 @@ S0000 beautiful
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 paris'?
 
@@ -2750,7 +2750,7 @@ He sounds much better
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 boris will be able to see again in about three monhts. its going very well
 
@@ -2880,7 +2880,7 @@ who was the english designet that you thought was energentic , but sophisticated
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 who was the english designet that you thought was energentic , but sophisticated?
 
@@ -2954,7 +2954,7 @@ How about you ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 Where and when?
 
@@ -2968,7 +2968,7 @@ Where and when?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 will you be in paris 22-30? goig to verailles 27th,
 
@@ -3012,7 +3012,7 @@ In Paris ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 did you have fun
 
@@ -3068,7 +3068,7 @@ Im glad you saw him.
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 boris was much bettter than i expected, you were missed but not forgoteen
 
@@ -3110,7 +3110,7 @@ Nxt month ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 im in paris 22-31
 
@@ -3144,7 +3144,7 @@ In Paris meditating
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 are you coming?
 
@@ -3158,7 +3158,7 @@ are you coming?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 im going to my ranch sat the 23 long beach the 25, you can fly the entire trip if you Ike
 
@@ -3186,7 +3186,7 @@ im going to my ranch sat the 23 long beach the 25, you can fly the entire trip i
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 tried to call
 
@@ -3214,7 +3214,7 @@ tried to call
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 it got too late talk tomonv
 
@@ -3340,7 +3340,7 @@ can i call you
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 have you finalized plans for travle?
 
@@ -3498,7 +3498,7 @@ Im glad you spoke.. Ive been thinking about him all day..
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 spoke to boris , it will be ok, he was overwhlemed both with his current circumestances and what a good
 
@@ -3720,7 +3720,7 @@ Yes u?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 well?
 
@@ -3778,7 +3778,7 @@ So have to shoot !
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 good flight? birthday marius?
 
@@ -4018,7 +4018,7 @@ Spent the morning on the beach
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 Ok?
 
@@ -4032,7 +4032,7 @@ Ok?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 we should land at approx 230 thurs. If you are around , you can come meet us and see the big plane.
 
@@ -4258,7 +4258,7 @@ Ok I'll try to muster the courage after the beach
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 . lena andersson„ of thanks,
 
@@ -4424,7 +4424,7 @@ I makes me want to cook...
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 haircut, dentist, sushi, bicylces. shopping, movies, beach, dock, enjoy, . feel free to use my steam, in my
 
@@ -5130,7 +5130,7 @@ yes, what time will you be back on land if at all?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 will be there tomoorw
 
@@ -5730,7 +5730,7 @@ Of course I want to see youttttt
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 I will be in st barth tomorrow „ how do I find you?
 
@@ -5946,7 +5946,7 @@ Great will I see you????
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 will fly to st barth sat
 
@@ -5988,7 +5988,7 @@ Pll write email with details today
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 st barths?
 
@@ -6098,7 +6098,7 @@ Im in the hospital for test... Not feeling better ..
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 the weather is beautiful here
 
@@ -6156,7 +6156,7 @@ the weather is beautiful here
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 palm beach? sue/
 
@@ -6288,7 +6288,7 @@ Will do... How is life ??
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 cute outfit at ceremony
 
@@ -6316,7 +6316,7 @@ Called u today
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 we should firm up palm beach trip. ,
 
@@ -6358,7 +6358,7 @@ Called u today
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 hamesss the energy of the fire, it can power many things, . don't let it burn down your life
 
@@ -6418,7 +6418,7 @@ we arc going houseware shopping , want to come. ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 we are going houseware shopping , want to come. ?
 
@@ -6670,7 +6670,7 @@ Long night of mourning
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 what are todays plans
 
@@ -6698,7 +6698,7 @@ what are todays plans
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 
 
@@ -6948,7 +6948,7 @@ Call me!!!
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 I should be at the continental tomorow night. you?
 
@@ -6976,7 +6976,7 @@ I should be at the continental tomorow night. you?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 see you friday, in oslo
 
@@ -7060,7 +7060,7 @@ I get home fri morning will u still be there?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 any better?
 
@@ -7626,7 +7626,7 @@ You r such a sweetheart
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 how are you„ you sounded beat ? hope you are feeling better, st bans will be fun
 
@@ -8272,7 +8272,7 @@ Lost you its your bad connection call you after dinner
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 http://health.usnews.com/health-news/news/articles/201 2/09/03/organic-foods-not-healthier-or-more-nutritious-
 
@@ -8288,7 +8288,7 @@ study-says
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 https://www.youtube.corn/watch?v=jEgojvJJ8ew
 
@@ -8594,7 +8594,7 @@ Why not Norway ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 ok„ i will not come to norway„ when are you next in the states?
 
@@ -8732,7 +8732,7 @@ Treat the island well
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 i plan to come to oslo the weekend of the 23 rd of nov.
 
@@ -8876,7 +8876,7 @@ But then again with all the smoking im doing I'll probably die before you
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 Im planning on nonvay the 15-19 .
 
@@ -9014,7 +9014,7 @@ Books more books
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 weather was too bad, i returned to ny.. how was your wedding.
 
@@ -9214,7 +9214,7 @@ Tonight no sorry.
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 are you coming
 
@@ -10266,7 +10266,7 @@ costa rica next week
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 new york?
 
@@ -10358,7 +10358,7 @@ Big big Apple
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 wherea reyou
 
@@ -10424,7 +10424,7 @@ You havent gotten any of my replies?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 what bodily fluid is sweetness. or is it just the soul
 
@@ -10470,7 +10470,7 @@ Did u enjoy sweetness ?
 
 **To:** H.K.H. Kronprinsessen
 
-**Subject**: 
+**Subject**: CENSORED
 
 like sweetness, you can read the nabokov story of siamiese twins.. two people joined at the hip, with diffierent
 

@@ -84,7 +84,7 @@ def parse_first_email(text):
                 clean_text(line[5:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             continue
 
         # If colon is missing:
@@ -93,7 +93,7 @@ def parse_first_email(text):
                 clean_text(line[4:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             continue
 
         # Capture To
@@ -102,7 +102,7 @@ def parse_first_email(text):
                 clean_text(line[3:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             continue
 
         elif line.lower().startswith("to") and not headers["To"]:
@@ -110,7 +110,7 @@ def parse_first_email(text):
                 clean_text(line[2:].strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             continue
 
         # Capture Sent / Date
@@ -144,7 +144,7 @@ def parse_first_email(text):
                 clean_text((line[8:]).strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             headers["Subject"] = line
             continue
 
@@ -153,7 +153,7 @@ def parse_first_email(text):
                 clean_text((line[7:]).strip().strip('"'))
                 .replace(">", "")
                 .replace("<", "")
-            ) or "N/A"
+            ) or "CENSORED"
             headers["Subject"] = line
             continue
 

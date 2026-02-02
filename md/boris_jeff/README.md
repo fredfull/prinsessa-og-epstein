@@ -184,7 +184,7 @@ www.joshwordproductions.com O
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 origins institue tempe arizona. , violinece humanity,
 
@@ -328,7 +328,7 @@ go on the 12 th to yuri with you. / give mette a hug, / need 2 hrs bill time. /
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 I can have someone go , tuesday , but your contract should be subject to inspection./ I will go on the 12 th to
 
@@ -470,7 +470,7 @@ B
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 While they are in Norway, Bill and Melinda might enjoy meeting Terje and his wife, ( also a diplomat, she was
 
@@ -680,7 +680,7 @@ lets talk salina chow.? house. ? jawbone? bill schedule ? terje, ? mette? melz
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 lets talk salina chow.? house. ? jawbone? bill schedule ? tede, ? mette? melz
 
@@ -774,7 +774,7 @@ ny? island trip with
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 if you could give me an idea of 1 your schedule . i am going to pick you up and bring you. to ted. 2. i will
 
@@ -1608,7 +1608,7 @@ arrive to pb on 10th.
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 shooitng for dinner together the lOth in pb
 
@@ -2350,7 +2350,7 @@ B
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 can you send mette , contact. , could we try to have elon and , kimball over to the house
 
@@ -2430,7 +2430,7 @@ B
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 i promised to send mette some books as she asked but she wanted them sent to her hotel which hotel? that
 
@@ -3160,7 +3160,7 @@ Just called
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 should i have mette for tea
 
@@ -3310,7 +3310,7 @@ will mette be in ny with you=br clear=all>
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 will mette be in ny with you
 
@@ -3436,7 +3436,7 @@ should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 should we go to nonvay befoere vienna ? , can mette orgaine intersting dinner?
 
@@ -4242,7 +4242,7 @@ EFTA01850016
 
 **To:** Boris Nikolic
 
-**Subject**: 
+**Subject**: CENSORED
 
 great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
 
