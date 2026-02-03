@@ -173,6 +173,7 @@ emails = []
 total_emails = 0
 sorted_emails = []
 failed = []
+duplicates = []
 
 
 def remove_trailing_text(full_email):
@@ -221,6 +222,15 @@ def remove_trailing_text(full_email):
 
 for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
+        current_file_name = os.path.basename(pdf_file)
+        seen_file_before = list(
+            filter(lambda email: email["FileName"] == current_file_name, emails)
+        )
+        if len(seen_file_before):
+            print(f"Skipping {current_file_name}. It has already been parsed.")
+            duplicates.append(f"{pdf_file}")
+            continue
+
         total_emails += 1
 
         ## I assume that the first mail message exists within the first two pages of the pdf
@@ -233,8 +243,8 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
             continue
 
         # Add path to be used in md
-        email["Path"] = pdf_file
-        email["FileName"] = os.path.basename(pdf_file)
+        email["Path"] = f"{pdf_file}"
+        email["FileName"] = current_file_name
 
         if email["Content"]:
             email["Content"] = remove_trailing_text(email["Content"])
@@ -258,9 +268,12 @@ with open(CSV_FILE, "w", newline="", encoding="utf-8") as f:
 
 stats = {
     "pdf": {
-        "successfull": len(sorted_emails),
-        "total": total_emails,
+        "number_of_successfull": len(sorted_emails),
+        "number_of_failed": len(failed),
+        "number_of_duplicates": len(duplicates),
+        "total_unique": total_emails,
         "failed": failed,
+        "duplicates": duplicates,
     }
 }
 

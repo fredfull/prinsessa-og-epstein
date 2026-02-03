@@ -1880,20 +1880,6 @@ I think she has TGE wrong Monday , ask her if this thurs works
 
 ---
 
-### 2013-06-22 12:05:48+00:00
-
-**From:** Jeffrey Epstein
-
-**To:** Lesley Groff
-
-**Subject**: Re: Princess Mette
-
-I think she has TGE wrong Monday , ask her if this thurs works
-
-[PDF](../../pdf/mette/EFTA01970327.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970327.pdf)
-
----
-
 ### 2013-06-22 09:51:00+00:00
 
 **From:** Lesley Groff

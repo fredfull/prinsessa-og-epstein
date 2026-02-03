@@ -16,108 +16,6 @@ Where are you?
 
 ---
 
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re: Re: Re: Re: Re:
-
-Every day is a constant struggle of
-
-scratching the soul just
-
-Enough to still be able to chose the light
-
-[PDF](../../pdf/kronprinsessen/EFTA01772124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772124.pdf)
-
----
-
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-Continental or grand
-
-Did you download?
-
-[PDF](../../pdf/kpm/EFTA01766850.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01766850.pdf)
-
----
-
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-In this house mum decides
-
-Fairly and most of the time cool
-
-I surf so I own my respect there
-
-I will now make an effort with shades of grey
-
-[PDF](../../pdf/kronprinsessen/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
-
----
-
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-In this house mum decides
-
-Fairly and most of the time cool
-
-I surf so I own my respect there
-
-I will now make an effort with shades of grey
-
-[PDF](../../pdf/kpm/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
-
----
-
-### 
-
-**From:** Jeffrey Epstein
-
-**To:** H.K.H. Kronprinsessen
-
-**Subject**: Re:
-
-no worry, i have plenty to do there
-
-[PDF](../../pdf/kronprinsessen/EFTA01913796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913796.pdf)
-
----
-
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-What number can I reach u on??
-
-[PDF](../../pdf/kronprinsessen/EFTA02679936.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02679936.pdf)
-
----
-
 ### 2014-06-23 10:07:37+00:00
 
 **From:** Jeffrey Epstein
@@ -2091,24 +1989,6 @@ Den 22. juni 2013 Id. 16:05 skrev Jeffrey Epstein leevacation@gmail.com>:
 I think she has TGE wrong Monday , ask her if this thurs works
 
 [PDF](../../pdf/mette/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
-
----
-
-### 2013-06-22 12:25:59+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re: Princess Mette
-
-I'm there Thursday I arrive around 4.
-
-Den 22. juni 2013 Id. 16:05 skrev Jeffrey Epstein leevacation@gmail.com>:
-
-I think she has TGE wrong Monday , ask her if this thurs works
-
-[PDF](../../pdf/kpm/EFTA01970385.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01970385.pdf)
 
 ---
 
@@ -7174,26 +7054,6 @@ I will now make an effort with shades of grey
 
 ---
 
-### 2012-11-13 13:21:35+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-In this house mum decides
-
-Fairly and most of the time cool
-
-I surf so I own my respect there
-
-I will now make an effort with shades of grey
-
-[PDF](../../pdf/kpm/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
-
----
-
 ### 2012-11-13 12:57:12+00:00
 
 **From:** Jeffrey Epstein
@@ -7356,34 +7216,6 @@ And swim lots for meeeeee
 
 ---
 
-### 2012-11-12 14:59:49+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-And if I don't get depressed by this dengue I will get depressed by the fact that its only four and the sun is
-
-already down and I'll probably loose my hair
-
-My god it's a hard rock life these days
-
-And I take it the red is all my anger coming out
-
-Does not seem to come out of the nose tho
-
-So at least I haven't turned into a dragon just yet
-
-Hasta la vista
-
-And swim lots for meeeeee
-
-[PDF](../../pdf/kpm/EFTA00947874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947874.pdf)
-
----
-
 ### 2012-11-12 14:07:00+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -7395,20 +7227,6 @@ And swim lots for meeeeee
 What's the name of the house in palm beach I'm making you a present
 
 [PDF](../../pdf/kronprinsessen/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
-
----
-
-### 2012-11-12 14:07:00+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-What's the name of the house in palm beach I'm making you a present
-
-[PDF](../../pdf/kpm/EFTA01763278.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763278.pdf)
 
 ---
 
@@ -7429,26 +7247,6 @@ Does not seem to come out of the nose tho So at lea=t I haven't turned into a dr
 lots for meeeeee
 
 [PDF](../../pdf/kronprinsessen/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
-
----
-
-### 2012-11-12 14:00:00+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-And if I don't get depressed by this d=ngue I will get depressed by the fact that its only four and the sun is alr=ady down
-
-and I'll probably loose my hair My god it's a hard=rock life these days And I take it the red is all my anger coming=out
-
-Does not seem to come out of the nose tho So at lea=t I haven't turned into a dragon just yet Hasta la vista And swim
-
-lots for meeeeee
-
-[PDF](../../pdf/kpm/EFTA01763759.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763759.pdf)
 
 ---
 
@@ -8587,28 +8385,6 @@ And read yr emails !!!!
 Let's chat soon
 
 [PDF](../../pdf/kronprinsessen/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
-
----
-
-### 2012-10-30 23:08:43+00:00
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: Re:
-
-I'll check dates tmr
-
-Now off to sleep
-
-Go listen to that Norwegian woman sing...
-
-And read yr emails !!!!
-
-Let's chat soon
-
-[PDF](../../pdf/kpm/EFTA00711351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00711351.pdf)
 
 ---
 
@@ -11053,24 +10829,6 @@ See u=later
 Mm
 
 [PDF](../../pdf/kronprinsessen/EFTA01773663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773663.pdf)
-
----
-
-### 
-
-**From:** H.K.H. Kronprinsessen
-
-**To:** Jeffrey Epstein
-
-**Subject**: 
-
-Are you home over the weekend ? Sunday works best for me . date-last-viewed 0 date-received 1372235223 flags 8623750145 gmail-label-ids 27 7 remote-id 316387 1
-
-EFTA_R1_02104523
-
-EFTA02707249
-
-[PDF](../../pdf/kronprinsessen/EFTA02707249.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02707249.pdf)
 
 ---
 

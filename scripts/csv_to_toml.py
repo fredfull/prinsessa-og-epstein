@@ -1,23 +1,29 @@
 #!/bin/env python3
 
 import csv
-from pytablewriter import TomlTableWriter
+import tomlkit
+from tomlkit import document, table, aot, string
 import sys
 
 input_csv = sys.argv[1]
 output_toml = sys.argv[2]
 
-with open(input_csv, newline="", encoding="utf-8") as f:
-    reader = csv.reader(f)
-    headers = next(reader)
-    rows = list(reader)
+doc = document()
+items = aot()
 
-writer = TomlTableWriter(
-    table_name="messages",
-    headers=headers,
-    value_matrix=rows,
-)
+with open(input_csv, newline="", encoding="utf-8") as f:
+    reader = csv.DictReader(f)
+    for row in reader:
+        t = table()
+        for k, v in row.items():
+            if "\n" in v:
+                # force multiline TOML string
+                t[k] = string(v, multiline=True)
+            else:
+                t[k] = v
+        items.append(t)
+
+doc["messages"] = items
 
 with open(output_toml, "w", encoding="utf-8") as f:
-    writer.stream = f
-    writer.write_table()
+    f.write(tomlkit.dumps(doc))
