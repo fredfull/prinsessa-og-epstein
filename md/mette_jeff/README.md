@@ -30,8 +30,6 @@ scratching the soul just
 
 Enough to still be able to chose the light
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01772124.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772124.pdf)
 
 ---
@@ -68,8 +66,6 @@ I surf so I own my respect there
 
 I will now make an effort with shades of grey
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
 
 ---
@@ -89,8 +85,6 @@ Fairly and most of the time cool
 I surf so I own my respect there
 
 I will now make an effort with shades of grey
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kpm/EFTA01764058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01764058.pdf)
 
@@ -146,7 +140,7 @@ What number can I reach u on??
 
 **Subject**: 
 
-
+999
 
 [PDF](../../pdf/kronprinsessen/EFTA01918040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918040.pdf)
 
@@ -174,7 +168,7 @@ we didn't finish conversation
 
 **Subject**: 
 
-
+we didn't finish conversation
 
 [PDF](../../pdf/kronprinsessen/EFTA01917925.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01917925.pdf)
 
@@ -248,7 +242,13 @@ didn;t get to see you, ?
 
 **Subject**: 
 
+Sul:4ect Re:
 
+Call me
+
+Den 14. juni 2014 Id. 13:08 skrev "jeffrey E." :
+
+didn;t get to see you, ?
 
 [PDF](../../pdf/kronprinsessen/EFTA01919014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919014.pdf)
 
@@ -262,7 +262,7 @@ didn;t get to see you, ?
 
 **Subject**: 
 
-
+didn;t get to see you, ?
 
 [PDF](../../pdf/kronprinsessen/EFTA01918909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01918909.pdf)
 
@@ -290,7 +290,7 @@ well?
 
 **Subject**: 
 
-
+well?
 
 [PDF](../../pdf/kronprinsessen/EFTA01921290.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01921290.pdf)
 
@@ -350,7 +350,7 @@ happy national day, hope you are well
 
 **Subject**: 
 
-
+happy national day, hope you are well
 
 [PDF](../../pdf/kronprinsessen/EFTA01924810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924810.pdf)
 
@@ -394,8 +394,6 @@ spoke to boris , glad to hear you are feeling better
 
 You can say that
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00980225.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00980225.pdf)
 
 ---
@@ -437,8 +435,6 @@ Woody Allen at my house for a week
 **Subject**: Re:
 
 well that must have been a neurotic expereince for the two of you ; )
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01940087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01940087.pdf)
 
@@ -606,7 +602,7 @@ where for the holidays?
 
 **Subject**: 
 
-
+where for the holidays?
 
 [PDF](../../pdf/kronprinsessen/EFTA01944566.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01944566.pdf)
 
@@ -634,7 +630,7 @@ How are you
 
 **Subject**: 
 
-
+How arc you
 
 [PDF](../../pdf/kronprinsessen/EFTA01945437.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01945437.pdf)
 
@@ -830,7 +826,7 @@ Hope it goes well. If you prefer us hospital help
 
 **Subject**: 
 
-
+Hope it goes well. If you prefer us hospital I'll help
 
 [PDF](../../pdf/kronprinsessen/EFTA01948699.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01948699.pdf)
 
@@ -858,7 +854,7 @@ any better?
 
 **Subject**: 
 
-
+any better?
 
 [PDF](../../pdf/kronprinsessen/EFTA01952343.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01952343.pdf)
 
@@ -1142,7 +1138,7 @@ N00000
 
 **Subject**: 
 
-
+feeling better?
 
 [PDF](../../pdf/kronprinsessen/EFTA01955542.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955542.pdf)
 
@@ -1234,7 +1230,7 @@ Thanx
 
 **Subject**: 
 
-
+hope you are feeling better
 
 [PDF](../../pdf/kronprinsessen/EFTA01955572.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01955572.pdf)
 
@@ -1262,7 +1258,7 @@ will i see you tomorw
 
 **Subject**: 
 
-
+will i see you tomorw
 
 [PDF](../../pdf/kronprinsessen/EFTA01954291.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954291.pdf)
 
@@ -1398,7 +1394,7 @@ are you coming by at 8?
 
 **Subject**: 
 
-
+are you coming by at 8?
 
 [PDF](../../pdf/kronprinsessen/EFTA01956950.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956950.pdf)
 
@@ -1540,7 +1536,7 @@ Yes!!!!
 
 **Subject**: 
 
-
+do I get to see you?
 
 [PDF](../../pdf/kronprinsessen/EFTA01954328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01954328.pdf)
 
@@ -1568,7 +1564,7 @@ Come visit
 
 **Subject**: 
 
-
+Come visit
 
 [PDF](../../pdf/kronprinsessen/EFTA01959014.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01959014.pdf)
 
@@ -1662,7 +1658,7 @@ when?
 
 **Subject**: 
 
-
+when?
 
 [PDF](../../pdf/kronprinsessen/EFTA01960353.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01960353.pdf)
 
@@ -1690,7 +1686,7 @@ when are you free sat sun?
 
 **Subject**: 
 
-
+when are you free sat sun?
 
 [PDF](../../pdf/kronprinsessen/EFTA02574776.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574776.pdf)
 
@@ -1704,7 +1700,7 @@ when are you free sat sun?
 
 **Subject**: 
 
-
+when are you free sat sun?
 
 [PDF](../../pdf/kronprinsessen/EFTA01958650.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01958650.pdf)
 
@@ -1916,7 +1912,7 @@ thanks
 
 **Subject**: 
 
-
+thanks
 
 [PDF](../../pdf/kronprinsessen/EFTA01966612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966612.pdf)
 
@@ -1962,7 +1958,7 @@ shoppping at530
 
 **Subject**: 
 
-
+shoppping at530
 
 [PDF](../../pdf/kronprinsessen/EFTA01969020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01969020.pdf)
 
@@ -2052,7 +2048,11 @@ no at harvard on fri then caribean
 
 **Subject**: 
 
+Are you home over the weekend ? Sunday works best for me . conversation-idgkey> 258657 date-last-viewed 0 date-received 1372235223 flags 8623750145 gmail-label-ids 6 2 remote-id 316387 1
 
+EFTA_R1_01739416
+
+EFTA02571076
 
 [PDF](../../pdf/kronprinsessen/EFTA02571076.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02571076.pdf)
 
@@ -2066,7 +2066,11 @@ no at harvard on fri then caribean
 
 **Subject**: 
 
+Are you home over the weekend ? Sunday works best for me
 
+EFTA_R1_00448448
+
+EFTA01968591
 
 [PDF](../../pdf/kronprinsessen/EFTA01968591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01968591.pdf)
 
@@ -2190,7 +2194,7 @@ what days ,
 
 **Subject**: 
 
-
+what days ,
 
 [PDF](../../pdf/kronprinsessen/EFTA01966593.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01966593.pdf)
 
@@ -2218,7 +2222,7 @@ what days ,
 
 **Subject**: 
 
-
+i hear surfing was great
 
 [PDF](../../pdf/kronprinsessen/EFTA01971068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01971068.pdf)
 
@@ -2246,7 +2250,7 @@ sounds like a fun trip you are about to embark on
 
 **Subject**: 
 
-
+sounds like a furl trip you are about to embark on
 
 [PDF](../../pdf/kronprinsessen/EFTA01973167.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973167.pdf)
 
@@ -2348,7 +2352,7 @@ you are missed on this side of the atlanitc
 
 **Subject**: 
 
-
+you are missed on this side of the atlanitc
 
 [PDF](../../pdf/kronprinsessen/EFTA01973350.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973350.pdf)
 
@@ -2570,7 +2574,7 @@ any plans for the states?
 
 **Subject**: 
 
-
+any plans for the states?
 
 [PDF](../../pdf/kronprinsessen/EFTA01895145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01895145.pdf)
 
@@ -2722,7 +2726,7 @@ paris'?
 
 **Subject**: 
 
-
+paris?
 
 [PDF](../../pdf/kronprinsessen/EFTA01902316.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902316.pdf)
 
@@ -2896,7 +2900,7 @@ who was the english designet that you thought was energentic , but sophisticated
 
 **Subject**: 
 
-
+who was the english designet that you thought was energentic , but sophisticated?
 
 [PDF](../../pdf/kronprinsessen/EFTA01902493.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902493.pdf)
 
@@ -2984,7 +2988,7 @@ will you be in paris 22-30? goig to verailles 27th,
 
 **Subject**: 
 
-
+will you be in paris 22-30? goig to verailles 27th,
 
 [PDF](../../pdf/kronprinsessen/EFTA01902832.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01902832.pdf)
 
@@ -3174,7 +3178,7 @@ im going to my ranch sat the 23 long beach the 25, you can fly the entire trip i
 
 **Subject**: 
 
-
+im going to my ranch sat the 23 long beach the 25, you can fly the entire trip if you Ike
 
 [PDF](../../pdf/kronprinsessen/EFTA01907276.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907276.pdf)
 
@@ -3202,7 +3206,7 @@ tried to call
 
 **Subject**: 
 
-
+tried to call
 
 [PDF](../../pdf/kronprinsessen/EFTA01904240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904240.pdf)
 
@@ -3230,7 +3234,7 @@ it got too late talk tomonv
 
 **Subject**: 
 
-
+it got too late talk tomorw
 
 [PDF](../../pdf/kronprinsessen/EFTA01903768.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01903768.pdf)
 
@@ -3468,7 +3472,7 @@ U well?
 
 **Subject**: 
 
-
+spent a long time today on the phone with boris , he is aware of the issues .
 
 [PDF](../../pdf/kronprinsessen/EFTA01904741.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01904741.pdf)
 
@@ -3542,7 +3546,9 @@ tttttttttttttttttttttttt
 
 **Subject**: 
 
+spoke to boris , it will be ok, he was overwhlemed both with his current circumestances and
 
+what a good friend you were
 
 [PDF](../../pdf/kronprinsessen/EFTA01907465.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907465.pdf)
 
@@ -3598,7 +3604,7 @@ Call me
 
 **Subject**: 
 
-
+i am going to schedule a trip in two to three weeks for seatle. anychance you would like to join?
 
 [PDF](../../pdf/kronprinsessen/EFTA01908222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908222.pdf)
 
@@ -3612,7 +3618,7 @@ Call me
 
 **Subject**: 
 
-
+what do we know?
 
 [PDF](../../pdf/kronprinsessen/EFTA01910187.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910187.pdf)
 
@@ -3658,7 +3664,7 @@ i understand you were an amzing friend to boris in a time of need. thanksk
 
 **Subject**: 
 
-
+i understand you were an amzing friend to boris in a time of need. thanksk
 
 [PDF](../../pdf/kronprinsessen/EFTA01907499.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907499.pdf)
 
@@ -3736,7 +3742,7 @@ well?
 
 **Subject**: 
 
-
+well?
 
 [PDF](../../pdf/kronprinsessen/EFTA01909370.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909370.pdf)
 
@@ -3794,7 +3800,7 @@ good flight? birthday marius?
 
 **Subject**: 
 
-
+good flight? birthday marius?
 
 [PDF](../../pdf/kronprinsessen/EFTA01908790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908790.pdf)
 
@@ -3868,7 +3874,15 @@ area is activated, just like a muscle„ i will send you the follow up
 
 **Subject**: 
 
+Changes density & " less gray matter"
 
+Not precise enough wording from my side I apologize
+
+Will send full research from back home
+
+EFTA_R1_00343424
+
+EFTA01908546
 
 [PDF](../../pdf/kronprinsessen/EFTA01908546.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908546.pdf)
 
@@ -3882,7 +3896,15 @@ area is activated, just like a muscle„ i will send you the follow up
 
 **Subject**: 
 
+Changes density & " less gray matter"
 
+Not precise enough wording from my side I apologize
+
+Will send full research from back home date-last-viewed 0 date-received 1357937854 flags 8623750145 gmail-label-ids 27 7 remote-id 269067 1
+
+EFTA_R1_02102651
+
+EFTA02706710
 
 [PDF](../../pdf/kronprinsessen/EFTA02706710.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706710.pdf)
 
@@ -3896,7 +3918,15 @@ area is activated, just like a muscle„ i will send you the follow up
 
 **Subject**: 
 
+Changes density & " less gray matter"
 
+Not precise enough wording from my side I apologize
+
+Will send full research from back home date-last-viewed creal>0.0 date-received 1357937854 flags 8623750145 original-mailbox imap://jeevacation@imap.gmail.com/%58Gmail%5D/All%20Mail remote-id 269067 1
+
+EFTA_R1_01368638
+
+EFTA02369087
 
 [PDF](../../pdf/kronprinsessen/EFTA02369087.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02369087.pdf)
 
@@ -4048,7 +4078,9 @@ we should land at approx 230 thurs. If you are around , you can come meet us and
 
 **Subject**: 
 
+we should land at approx 230 thurs. If you are around , you can come meet us and see the big
 
+plane.
 
 [PDF](../../pdf/kronprinsessen/EFTA01909248.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909248.pdf)
 
@@ -4071,8 +4103,6 @@ This place is conducive to meditation
 Thank you do much
 
 I haven't felt so much at peace in a long time
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00952156.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952156.pdf)
 
@@ -4102,8 +4132,6 @@ She is 17 she thought it would be great fun . But I never want you to feel odd .
 
 Did u have a good day . Boris arrives midnight thurs
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01908703.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908703.pdf)
 
 ---
@@ -4128,8 +4156,6 @@ If you come I'll just wait & go back with you..
 
 Marius is in the hospital hurt himself skiing ...
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00952138.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00952138.pdf)
 
 ---
@@ -4147,8 +4173,6 @@ Jeffrey I will not call her
 It makes me feel uncomfortable
 
 I'll make your little goddaughter a present instead,
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00668494.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668494.pdf)
 
@@ -4180,8 +4204,6 @@ She is 17 she thought it would be great fun . But I never want you to feel odd .
 
 Did u have a good day . Boris arrives midnight thurs
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01913474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913474.pdf)
 
 ---
@@ -4195,8 +4217,6 @@ Did u have a good day . Boris arrives midnight thurs
 **Subject**: Re:
 
 no, i land directly in palm beach, but i might go to miami late afternoon ,so lets coordinate
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951367.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951367.pdf)
 
@@ -4217,8 +4237,6 @@ Do you land in Miami thursday.
 I have to go in for the day
 
 Maybe we can drive back together
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00699985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699985.pdf)
 
@@ -4286,8 +4304,6 @@ Den 7. jan. 2013 Id. 12:21 skrev Jeffrey Epstein :
 
 she'll be in tonite, again,
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01909802.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909802.pdf)
 
 ---
@@ -4301,8 +4317,6 @@ she'll be in tonite, again,
 **Subject**: Re:
 
 she'll be in tonite, again,
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01909632.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909632.pdf)
 
@@ -4348,7 +4362,7 @@ please . it is for my god daughter, please
 
 **Subject**: 
 
-
+grandmother of my god daguhter hanks,
 
 [PDF](../../pdf/kronprinsessen/EFTA01908996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908996.pdf)
 
@@ -4392,7 +4406,7 @@ Im working out in yr gym will call u after
 
 **Subject**: 
 
-
+I also have the best internist . He is the diagnostic genius
 
 [PDF](../../pdf/kronprinsessen/EFTA01912159.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912159.pdf)
 
@@ -4462,7 +4476,9 @@ I makes me want to cook...
 
 **Subject**: 
 
+haircut, dentist, sushi, bicylces. shopping, movies, beach, dock, enjoy, . feel free to use my
 
+steam, in my bathroom,
 
 [PDF](../../pdf/kronprinsessen/EFTA01910799.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910799.pdf)
 
@@ -4477,8 +4493,6 @@ I makes me want to cook...
 **Subject**: Re: Great to see u
 
 stubborn, i also understand,
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951188.pdf)
 
@@ -4497,8 +4511,6 @@ Or rephrase I will smoke at the house
 But not inside
 
 Promise
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951173.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951173.pdf)
 
@@ -4545,8 +4557,6 @@ And I know the only answer is within
 Thank you for seeing me
 
 Mm
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951170.pdf)
 
@@ -4624,8 +4634,6 @@ Will let you know when I do
 
 Where are u having lunch with elon??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00699979.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699979.pdf)
 
 ---
@@ -4639,8 +4647,6 @@ Where are u having lunch with elon??
 **Subject**: Re:
 
 Will et you know when I do
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01910183.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910183.pdf)
 
@@ -4658,8 +4664,6 @@ Yay #1111 We r on a boat outside colombier I presume
 
 Our house is just nxt to the airport at pointe lezard
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00668503.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668503.pdf)
 
 ---
@@ -4673,8 +4677,6 @@ Our house is just nxt to the airport at pointe lezard
 **Subject**: Re:
 
 Thx I look like a white whale
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00668500.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668500.pdf)
 
@@ -4690,8 +4692,6 @@ Thx I look like a white whale
 
 Where are u having lunch with don??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01909772.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909772.pdf)
 
 ---
@@ -4705,8 +4705,6 @@ Where are u having lunch with don??
 **Subject**: Re:
 
 i will fly over if you tell me where you are.. make alot of noise etc.
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951788.pdf)
 
@@ -4722,8 +4720,6 @@ i will fly over if you tell me where you are.. make alot of noise etc.
 
 yes, it was reported back immediatly, she said you looked great,
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00951785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951785.pdf)
 
 ---
@@ -4738,8 +4734,6 @@ yes, it was reported back immediatly, she said you looked great,
 
 No the day before
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00693099.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693099.pdf)
 
 ---
@@ -4753,8 +4747,6 @@ No the day before
 **Subject**: Re:
 
 By the way I saw in town yesterday
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00693094.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693094.pdf)
 
@@ -4772,8 +4764,6 @@ Bummer I would have loved to see the chopper land .... I can see the take off in
 
 And you leave when ??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00693091.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693091.pdf)
 
 ---
@@ -4787,8 +4777,6 @@ And you leave when ??
 **Subject**: Re:
 
 12
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00951782.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951782.pdf)
 
@@ -4804,8 +4792,6 @@ And you leave when ??
 
 Thx I look like a white whale
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01909090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909090.pdf)
 
 ---
@@ -4820,8 +4806,6 @@ Thx I look like a white whale
 
 No the day before
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01795783.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795783.pdf)
 
 ---
@@ -4835,8 +4819,6 @@ No the day before
 **Subject**: Re:
 
 By the way I saw Svetlana in town yesterday
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01795862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01795862.pdf)
 
@@ -4894,8 +4876,6 @@ i will meet elon musk for lunch, you can join, or see you after , or in palm bea
 
 When do you land ????
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01796137.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01796137.pdf)
 
 ---
@@ -4913,8 +4893,6 @@ I will make a huge effort to see you as I want you to meet Haakon my husband
 Den 3. jan. 2013 Id. 21:17 skrev Jeffrey Epstein :
 
 i will meet don musk for lunch, you can join, or sec you after , or in palm beach
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01911679.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911679.pdf)
 
@@ -4934,8 +4912,6 @@ Den 3. jan. 2013 Id. 21:17 skrev Jeffrey Epstein :
 
 i will meet don musk for lunch, you can join, or sec you after , or in palm beach
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01911628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911628.pdf)
 
 ---
@@ -4953,8 +4929,6 @@ i will meet elon musk for lunch, you can join, or sec you after , or in palm bea
 On Thu, Jan 3, 2013 at 7:15 PM, H.K.H. Kronprinscsscn ote:
 
 What do you have to do besides seeing me 999999
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01911112.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911112.pdf)
 
@@ -5192,7 +5166,7 @@ U coming alone??
 
 **Subject**: 
 
-
+will be there tomoorw
 
 [PDF](../../pdf/kronprinsessen/EFTA01910031.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910031.pdf)
 
@@ -5301,8 +5275,6 @@ Oh noo!!!
 I send good bugs
 
 Let me know when u r better
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01912591.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912591.pdf)
 
@@ -5476,7 +5448,9 @@ What number can I reach u on??
 
 **Subject**: 
 
+Inline-Images: photo.JPG
 
+Sony for all the typos .
 
 [PDF](../../pdf/kronprinsessen/EFTA00642435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642435.pdf)
 
@@ -5490,7 +5464,13 @@ What number can I reach u on??
 
 **Subject**: 
 
+Attachments: photoJPG; Untitled attachment 00088.txt
 
+1
+
+EFTA_R1_00068741
+
+EFTA01762994
 
 [PDF](../../pdf/kronprinsessen/EFTA01762994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762994.pdf)
 
@@ -5504,7 +5484,11 @@ What number can I reach u on??
 
 **Subject**: 
 
+Attachments: photoJPG; Untitled attachment 00115.txt
 
+EFTA_R1_02 101597
+
+EFTA02706570
 
 [PDF](../../pdf/kronprinsessen/EFTA02706570.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02706570.pdf)
 
@@ -5520,8 +5504,6 @@ What number can I reach u on??
 
 Send photo of heli
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00951992.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951992.pdf)
 
 ---
@@ -5536,8 +5518,6 @@ Send photo of heli
 
 Send photo of hell
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01908712.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01908712.pdf)
 
 ---
@@ -5551,8 +5531,6 @@ Send photo of hell
 **Subject**: Re:
 
 you can visit any day iwill send heli
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00950735.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950735.pdf)
 
@@ -5569,8 +5547,6 @@ you can visit any day iwill send heli
 Yes
 
 LI having fun on the island???
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01763221.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763221.pdf)
 
@@ -5746,7 +5722,7 @@ I will be in st barth tomorrow „ how do I find you?
 
 **Subject**: 
 
-
+I will be in st barth tomorrow „ how do I find you?
 
 [PDF](../../pdf/kronprinsessen/EFTA01909338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01909338.pdf)
 
@@ -5886,6 +5862,8 @@ Boris I leave on the lithium
 
 **Subject**: Re:
 
+Cc: Boris Nikolic
+
 Boris I leave on the lithium
 
 [PDF](../../pdf/kronprinsessen/EFTA01803775.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01803775.pdf)
@@ -5962,7 +5940,7 @@ will fly to st barth sat
 
 **Subject**: 
 
-
+will fly to st barth sat
 
 [PDF](../../pdf/kronprinsessen/EFTA01913497.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913497.pdf)
 
@@ -6058,7 +6036,7 @@ st barths?
 
 **Subject**: 
 
-
+st barths?
 
 [PDF](../../pdf/kronprinsessen/EFTA01914040.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01914040.pdf)
 
@@ -6130,7 +6108,7 @@ the weather is beautiful here
 
 **Subject**: 
 
-
+the weather is beautiful here
 
 [PDF](../../pdf/kronprinsessen/EFTA01911604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911604.pdf)
 
@@ -6144,7 +6122,7 @@ the weather is beautiful here
 
 **Subject**: 
 
-
+Dates pb?
 
 [PDF](../../pdf/kronprinsessen/EFTA01910205.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910205.pdf)
 
@@ -6276,7 +6254,7 @@ Will do... How is life ??
 
 **Subject**: 
 
-
+m main asst little is in oslo if ssible i m sure she would be thrilled to see you"
 
 [PDF](../../pdf/kronprinsessen/EFTA01910475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910475.pdf)
 
@@ -6332,7 +6310,7 @@ we should firm up palm beach trip. ,
 
 **Subject**: 
 
-
+we should firm up palm beach trip. ,
 
 [PDF](../../pdf/kronprinsessen/EFTA01912369.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912369.pdf)
 
@@ -6374,7 +6352,7 @@ hamesss the energy of the fire, it can power many things, . don't let it burn do
 
 **Subject**: 
 
-
+hamesss the energy of the fire, it can power many things, . don't let it burn down your life
 
 [PDF](../../pdf/kronprinsessen/EFTA01912814.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912814.pdf)
 
@@ -6434,7 +6412,7 @@ we are going houseware shopping , want to come. ?
 
 **Subject**: 
 
-
+we are going houseware shopping , want to come. ?
 
 [PDF](../../pdf/kronprinsessen/EFTA01912239.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912239.pdf)
 
@@ -6450,8 +6428,6 @@ we are going houseware shopping , want to come. ?
 
 Thank you my friend
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00949733.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949733.pdf)
 
 ---
@@ -6465,8 +6441,6 @@ Thank you my friend
 **Subject**: Re:
 
 Be well
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00949723.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00949723.pdf)
 
@@ -6614,7 +6588,7 @@ you did not respond, i will be free now after 21 30
 
 **Subject**: 
 
-
+you did not respond, i will be free now after 21 30
 
 [PDF](../../pdf/kronprinsessen/EFTA01973407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973407.pdf)
 
@@ -6686,7 +6660,7 @@ what are todays plans
 
 **Subject**: 
 
-
+what are todays plans
 
 [PDF](../../pdf/kronprinsessen/EFTA01976415.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976415.pdf)
 
@@ -6964,7 +6938,7 @@ I should be at the continental tomorow night. you?
 
 **Subject**: 
 
-
+I should be at the continental tomorow night. you?
 
 [PDF](../../pdf/kronprinsessen/EFTA01976449.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976449.pdf)
 
@@ -6992,7 +6966,7 @@ see you friday, in oslo
 
 **Subject**: 
 
-
+see you friday, in oslo
 
 [PDF](../../pdf/kronprinsessen/EFTA01974425.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974425.pdf)
 
@@ -7034,7 +7008,7 @@ I get home fri morning will u still be there?
 
 **Subject**: 
 
-
+will he in oslo on thurs
 
 [PDF](../../pdf/kronprinsessen/EFTA01975730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975730.pdf)
 
@@ -7048,7 +7022,7 @@ I get home fri morning will u still be there?
 
 **Subject**: 
 
-
+any better?
 
 [PDF](../../pdf/kronprinsessen/EFTA01977025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977025.pdf)
 
@@ -7174,7 +7148,7 @@ Finally turned grey during my massage
 
 **Subject**: 
 
-
+where will you be the 29 30
 
 [PDF](../../pdf/kronprinsessen/EFTA01978810.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01978810.pdf)
 
@@ -7196,8 +7170,6 @@ I surf so I own my respect there
 
 I will now make an effort with shades of grey
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
 
 ---
@@ -7217,8 +7189,6 @@ Fairly and most of the time cool
 I surf so I own my respect there
 
 I will now make an effort with shades of grey
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kpm/EFTA02005389.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005389.pdf)
 
@@ -7716,8 +7686,6 @@ MM.
 
 Jan 20 , Inauguration Day
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00947200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947200.pdf)
 
 ---
@@ -7731,8 +7699,6 @@ Jan 20 , Inauguration Day
 **Subject**: Re: Re:
 
 Jan 20 , Inauguration Day
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01980111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980111.pdf)
 
@@ -7763,8 +7729,6 @@ Not for my astrologer
 Or my psychic
 
 But for my calendar
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00947195.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947195.pdf)
 
@@ -7992,8 +7956,6 @@ Or my psychic
 
 But for my calendar
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01765359.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765359.pdf)
 
 ---
@@ -8014,8 +7976,6 @@ Just like you
 
 Soft hearted
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01765315.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765315.pdf)
 
 ---
@@ -8031,8 +7991,6 @@ Soft hearted
 And for gods sake find yourself a decorating wife
 
 Otherwise you'll go nutz
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01765289.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765289.pdf)
 
@@ -8061,8 +8019,6 @@ Soon people won't be able to make new humans anymore&nbs=;
 But I guess that would be la la land great =/div>
 
 We can just design them in a lab
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01765256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01765256.pdf)
 
@@ -8318,7 +8274,9 @@ Lost you its your bad connection I'll call you after dinner
 
 **Subject**: 
 
+http://hcalth.usnews.com/health-news news/articles:2012/09 03 oruanic-tbods-not-hcalthier-or-
 
+more-nutritious-study-says
 
 [PDF](../../pdf/kronprinsessen/EFTA01976834.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976834.pdf)
 
@@ -8346,7 +8304,7 @@ Lost you its your bad connection I'll call you after dinner
 
 **Subject**: 
 
-
+Imps. www.youttibe.com watch^.\--jESoivIlSew
 
 [PDF](../../pdf/kronprinsessen/EFTA01976787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976787.pdf)
 
@@ -8390,8 +8348,6 @@ send me a number to call
 
 Call me when you wake up
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00947111.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947111.pdf)
 
 ---
@@ -8404,7 +8360,11 @@ Call me when you wake up
 
 **Subject**: 
 
+exp.lore.com/post/34757669035/joy-williams-on-why-writers-write 1
 
+EFTA_R1_00069914
+
+EFTA01763584
 
 [PDF](../../pdf/kronprinsessen/EFTA01763584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763584.pdf)
 
@@ -8424,8 +8384,6 @@ Making New website
 
 Mrs green & friends
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00671734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671734.pdf)
 
 ---
@@ -8439,8 +8397,6 @@ Mrs green & friends
 **Subject**: Re:
 
 reading
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00947089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00947089.pdf)
 
@@ -8474,8 +8430,6 @@ Making New website
 
 Mrs green & f=iends
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01763870.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01763870.pdf)
 
 ---
@@ -8489,8 +8443,6 @@ Mrs green & f=iends
 **Subject**: Re:
 
 reading
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01977086.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01977086.pdf)
 
@@ -8610,7 +8562,7 @@ ok„ i will not come to norway„ when are you next in the states?
 
 **Subject**: 
 
-
+ok„ i will not come to norway„ when are you next in the states?
 
 [PDF](../../pdf/kronprinsessen/EFTA01980514.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01980514.pdf)
 
@@ -9230,7 +9182,7 @@ are you coming
 
 **Subject**: 
 
-
+are you coming
 
 [PDF](../../pdf/kronprinsessen/EFTA01884716.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884716.pdf)
 
@@ -9246,8 +9198,6 @@ are you coming
 
 And what kind would that be ?
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00943922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943922.pdf)
 
 ---
@@ -9261,8 +9211,6 @@ And what kind would that be ?
 **Subject**: Re:
 
 not the type you really need
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00943911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943911.pdf)
 
@@ -9278,8 +9226,6 @@ not the type you really need
 
 You are going to give me a lesson?
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00943907.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943907.pdf)
 
 ---
@@ -9293,8 +9239,6 @@ You are going to give me a lesson?
 **Subject**: Re:
 
 in fact wed night i have the princeton english professor michael wood for dinner at 7
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00943899.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943899.pdf)
 
@@ -9310,8 +9254,6 @@ in fact wed night i have the princeton english professor michael wood for dinner
 
 thurs 330?
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00943893.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943893.pdf)
 
 ---
@@ -9325,8 +9267,6 @@ thurs 330?
 **Subject**: Re:
 
 I'll check and get back to you wed thurs is better for me
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00699565.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699565.pdf)
 
@@ -9344,8 +9284,6 @@ Monday?
 
 Sony for all the typos .
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00699551.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00699551.pdf)
 
 ---
@@ -9361,8 +9299,6 @@ Sony for all the typos .
 Have plans but would be great to catch up over tea one day so you can tickle my brain..
 
 As it is in dire need loving shit books & swears in lack of vocabulary
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00943886.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943886.pdf)
 
@@ -9382,8 +9318,6 @@ Den 23. sep. 2012 Id. 17:57 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 not the type you really need
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01988935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988935.pdf)
 
 ---
@@ -9401,8 +9335,6 @@ And what kind would that be ?
 Den 23. sep. 2012 Id. 17:57 skrev Jeffrey Epstein leevacation@gmail.com>:
 
 not the type you really need
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01888435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888435.pdf)
 
@@ -9430,8 +9362,6 @@ I'll
 
 check and get back to you wed thurs is better for me
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02008858.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02008858.pdf)
 
 ---
@@ -9458,8 +9388,6 @@ I'll
 
 check and get back to you wed thurs is better for me
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01888100.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888100.pdf)
 
 ---
@@ -9473,8 +9401,6 @@ check and get back to you wed thurs is better for me
 **Subject**: Re:
 
 I'll check and get back to you wed thurs is better for me
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA02007435.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007435.pdf)
 
@@ -9491,8 +9417,6 @@ I'll check and get back to you wed thurs is better for me
 Have plans but would be great to catch up over tea one day so you can tickle my brain..
 
 As it is in dire need loving shit books & swears in lack of vocabulary
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA02007335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007335.pdf)
 
@@ -9513,8 +9437,6 @@ As it is in dire need loving shit books & swears in lack of vocabulary
 Den 23. sep. 2012 Id. 08:46 skrev Jeffrey Epstein leevaeationagmail.com>:
 
 new
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01886911.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886911.pdf)
 
@@ -9834,7 +9756,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA00656612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656612.pdf)
 
@@ -10112,7 +10034,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA02548334.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02548334.pdf)
 
@@ -10126,7 +10048,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA02360790.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02360790.pdf)
 
@@ -10140,7 +10062,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA02695490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02695490.pdf)
 
@@ -10154,7 +10076,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA01770634.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01770634.pdf)
 
@@ -10168,7 +10090,7 @@ Jeff Island ?
 
 **Subject**: 
 
-
+H Xmas
 
 [PDF](../../pdf/kronprinsessen/EFTA01848265.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848265.pdf)
 
@@ -10182,7 +10104,11 @@ Jeff Island ?
 
 **Subject**: 
 
+H Xmas
 
+EFTA_R1_00479772
+
+EFTA01988055
 
 [PDF](../../pdf/kronprinsessen/EFTA01988055.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01988055.pdf)
 
@@ -10374,7 +10300,7 @@ wherea reyou
 
 **Subject**: 
 
-
+wherea reyou
 
 [PDF](../../pdf/kronprinsessen/EFTA01848822.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01848822.pdf)
 
@@ -10440,7 +10366,7 @@ what bodily fluid is sweetness. or is it just the soul
 
 **Subject**: 
 
-
+what bodily fluid is sweetness. or is it just the soul
 
 [PDF](../../pdf/kronprinsessen/EFTA01856453.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856453.pdf)
 
@@ -10524,7 +10450,9 @@ Did u enjoy sweetness ?
 
 **Subject**: 
 
+like sweetness, you can read the nabokov story of siamiese twins.. two people joined at the hip,
 
+with diffiemnt views.
 
 [PDF](../../pdf/kronprinsessen/EFTA01854025.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01854025.pdf)
 
@@ -10539,8 +10467,6 @@ Did u enjoy sweetness ?
 **Subject**: Re: Re: Re: Re: Re: Re:
 
 understood
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00922809.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922809.pdf)
 
@@ -10558,8 +10484,6 @@ At least no peace today
 
 But there is always new beginnings
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00687594.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687594.pdf)
 
 ---
@@ -10573,8 +10497,6 @@ But there is always new beginnings
 **Subject**: Re: Re: Re: Re: Re:
 
 I can see you have yet to find a place of peace
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00922805.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922805.pdf)
 
@@ -10594,8 +10516,6 @@ scratching the soul just
 
 Enough to still be able to chose the light
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00656874.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656874.pdf)
 
 ---
@@ -10611,8 +10531,6 @@ Enough to still be able to chose the light
 they can scratch in itch in your soul„ or create an itch, to be scratched later. scratch your soul means to
 
 damage it. like scratching a line on a beautiful car.
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA00922801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922801.pdf)
 
@@ -10632,8 +10550,6 @@ I like images that scratch your soul
 
 Probably not correct English either
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00656829.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656829.pdf)
 
 ---
@@ -10650,8 +10566,6 @@ i hope that you understand that "what and why" is english that is incorrect. the
 
 ,nothing left to the imagination.
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00922796.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922796.pdf)
 
 ---
@@ -10665,8 +10579,6 @@ i hope that you understand that "what and why" is english that is incorrect. the
 **Subject**: Re: Re: Re: Re: Re: Re:
 
 understood
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01852610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852610.pdf)
 
@@ -10684,8 +10596,6 @@ At least no peace today
 
 But there is always new beginnings
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02023885.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02023885.pdf)
 
 ---
@@ -10701,8 +10611,6 @@ But there is always new beginnings
 At least no peace today
 
 But there is always new beginnings
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01772256.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772256.pdf)
 
@@ -10742,8 +10650,6 @@ I like images that scratch your soul
 
 Probably not correct English either
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01852522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852522.pdf)
 
 ---
@@ -10762,8 +10668,6 @@ scratching the soul just
 
 Enough to still be able to chose the light
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02024303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024303.pdf)
 
 ---
@@ -10779,8 +10683,6 @@ Enough to still be able to chose the light
 they can scratch in itch in your soul„ or create an itch, to be scratched later. scratch your soul
 
 means to damage it. like scratching a line on a beautiful car.
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01852235.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01852235.pdf)
 
@@ -10800,8 +10702,6 @@ I like images that scratch your soul
 
 Probably not correct English either
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01772496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772496.pdf)
 
 ---
@@ -10819,8 +10719,6 @@ Ha ha
 I like images that scratch your soul
 
 Probably not correct English either
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA02024016.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024016.pdf)
 
@@ -10906,8 +10804,6 @@ EFTA02026475
 
 Mm
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02026475.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02026475.pdf)
 
 ---
@@ -10922,8 +10818,6 @@ Mm
 
 So what and why do I like them ?
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01772463.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772463.pdf)
 
 ---
@@ -10937,8 +10831,6 @@ So what and why do I like them ?
 **Subject**: Re: Re:
 
 Sweetness is a better translation ..thanks
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01772997.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01772997.pdf)
 
@@ -11172,7 +11064,11 @@ Mm
 
 **Subject**: 
 
+Are you home over the weekend ? Sunday works best for me . date-last-viewed 0 date-received 1372235223 flags 8623750145 gmail-label-ids 27 7 remote-id 316387 1
 
+EFTA_R1_02104523
+
+EFTA02707249
 
 [PDF](../../pdf/kronprinsessen/EFTA02707249.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02707249.pdf)
 

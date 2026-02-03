@@ -28,8 +28,6 @@ Subject: Re: RE: Re:
 
 Boris if you stand me up on this one I will have a hit man sent your way
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 
 ---
@@ -61,8 +59,6 @@ Cc: Jeffrey Epstein
 Subject: Re: RE: Re:
 
 Boris if you stand me up on this one I will have a hit man sent your way
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
 

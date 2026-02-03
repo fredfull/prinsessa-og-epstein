@@ -7,7 +7,7 @@ All* correspondence in markdown can be found here: [/md/messages](/md/messages)
 
 All* correspondence in csv can found here: [/csv/messages.csv](/csv/messages.csv)
 
-
+Correspondence between Epstein and Crown Princess in chat bubble format can be found here: [fredfull.no/epstein](https://fredfull.no/epstein)
 Correspondence sorted by sender-receiver in markdown can be found here: [/md](/md)
 
 Correspondence sorted by sender-receiver in csv can be found here: [/csv/](/csv)

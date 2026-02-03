@@ -44,8 +44,6 @@ find a nice place to live so you are happy there
 
 find a nice place to live so you are happy there
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01924767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924767.pdf)
 
 ---
@@ -200,7 +198,7 @@ origins institue tempe arizona. , violinece humanity,
 
 **Subject**: 
 
-
+origins institue tempe arizona. , violinece humanity,
 
 [PDF](../../pdf/kronprinsessen/EFTA01931545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01931545.pdf)
 
@@ -214,7 +212,7 @@ origins institue tempe arizona. , violinece humanity,
 
 **Subject**: 
 
-
+origins institue tempe arizona. violinece humanity=
 
 [PDF](../../pdf/kronprinsessen/EFTA02582200.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02582200.pdf)
 
@@ -346,7 +344,9 @@ yuri with you. I give mette a hug, I need 2 hrs bill time. I
 
 **Subject**: 
 
+I can have someone go , tuesday , but your contract should be subject to inspection./ I will go
 
+on the 12 th to yuri with you. / give mette a hug, / need 2 hrs bill time. /
 
 [PDF](../../pdf/mette/EFTA01946867.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01946867.pdf)
 
@@ -458,7 +458,7 @@ B
 
 **Subject**: 
 
-
+are you ok? what happened with your neck?
 
 [PDF](../../pdf/kronprinsessen/EFTA01949255.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01949255.pdf)
 
@@ -500,7 +500,23 @@ requirements. ?
 
 **Subject**: 
 
+While they arc in Norway, Bill and Melinda might enjoy meeting Tcrje and his wife, ( also a
 
+diplomat, she was nominated to be Ambassador to the US ) , and/or Thjorborn Jagland and his
+
+wife, both have houses on the t ords, I can arrange it if Bill wants. I assume they will meet
+
+Mette and Halken anyway.
+
+I will be able to speak with Larry late in the day tomorrow. This week I am swamped . I see
+
+now, that even late friday won't work. for Bill. I can confirm the 8th or 9th ( dinner ? ) I might
+
+be able to travel to Norway , if he would enjoy that , but I obviously need to better understand the
+
+reason for the deadline. Is there some sort of public filing requirement for the foundation? Would
+
+a signed but undated letter of resignation satisfy Meilinda's requirements. ?
 
 [PDF](../../pdf/mette/EFTA01967734.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967734.pdf)
 
@@ -908,8 +924,6 @@ III be there
 
 Ill be there
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01911998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998.pdf)
 
 ---
@@ -923,8 +937,6 @@ Ill be there
 **Subject**: Re:
 
 Ill be there
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01911998-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998-1.pdf)
 
@@ -1042,8 +1054,6 @@ Subject: Re:
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
 
 ---
@@ -1070,8 +1080,6 @@ Subject: Re:
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
 
 ---
@@ -1086,8 +1094,6 @@ i will be there from 10-13
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
 
 ---
@@ -1101,8 +1107,6 @@ i will be there from 10-13
 **Subject**: Re:
 
 i will be there from 10-13
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
 
@@ -1232,8 +1236,6 @@ Subject: Re:
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
 
 ---
@@ -1260,8 +1262,6 @@ Subject: Re:
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
 
 ---
@@ -1276,8 +1276,6 @@ i will be there from 10-13
 
 i will be there from 10-13
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
 
 ---
@@ -1291,8 +1289,6 @@ i will be there from 10-13
 **Subject**: Re:
 
 i will be there from 10-13
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
 
@@ -1338,8 +1334,6 @@ Subject: Re:
 
 Breakfast??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/kronprinsessen/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
@@ -1384,8 +1378,6 @@ Subject: Re:
 
 Breakfast??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
@@ -1419,8 +1411,6 @@ Cc: Boris Nikolic
 Subject: Re:
 
 Breakfast??
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kronprinsessen/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
 
@@ -1456,8 +1446,6 @@ Subject: Re:
 
 Breakfast??
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01912795-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795-1.pdf)
 
 ---
@@ -1491,8 +1479,6 @@ Cc: Boris Nikolic
 Subject: Re:
 
 Breakfast??
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
 
@@ -1624,7 +1610,7 @@ shooitng for dinner together the lOth in pb
 
 **Subject**: 
 
-
+shooitng for dinner together the 10th in pb
 
 [PDF](../../pdf/kronprinsessen/EFTA02564089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564089.pdf)
 
@@ -1638,7 +1624,7 @@ shooitng for dinner together the lOth in pb
 
 **Subject**: 
 
-
+shooitng for dinner together the 10th in pb
 
 [PDF](../../pdf/kronprinsessen/EFTA01910934.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910934.pdf)
 
@@ -1678,8 +1664,6 @@ parsi available in tthree hours
 
 parsi available in tthree hours
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00948975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948975.pdf)
 
 ---
@@ -1703,8 +1687,6 @@ To: Boris Nikolic
 Subject: Re: Fwd:
 
 parsi available in [three hours
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01974050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974050.pdf)
 
@@ -1779,8 +1761,6 @@ To:-, MD
 Sent: Fri, Nov 30, 2012 1:00 pm
 
 when will you get feedback on worlkd bank, if they decline what is plan
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01973501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973501.pdf)
 
@@ -1890,7 +1870,7 @@ how did it go with bi=l yesterday„ mette and i just walked in a park zero degr
 
 **Subject**: 
 
-
+how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark,
 
 [PDF](../../pdf/mette/EFTA01976145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976145.pdf)
 
@@ -1953,8 +1933,6 @@ To: Boris Nikolic
 Subject: Re: where are you?
 
 oslo
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA02022050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022050.pdf)
 
@@ -2174,8 +2152,6 @@ Subject: Re: Re:
 
 i would do that before mette
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00943683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943683.pdf)
 
 ---
@@ -2189,8 +2165,6 @@ i would do that before mette
 **Subject**: Re: Re:
 
 i would do that before mette
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00943678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943678.pdf)
 
@@ -2220,8 +2194,6 @@ Subject: Re: Re:
 
 i would do that before mette
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA02010191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010191.pdf)
 
 ---
@@ -2241,8 +2213,6 @@ To: Boris Nikolic
 Subject: Re: Re:
 
 would HAVE TO BE more fun that what i expect
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01888774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888774.pdf)
 
@@ -2311,8 +2281,6 @@ To: Boris Nikolic
 Subject: Re: Re:
 
 i would do that before incue
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01888905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888905.pdf)
 
@@ -2418,7 +2386,7 @@ B
 
 **Subject**: 
 
-
+can you send mctte , contact. , could we try to have elon and , kimball over to the house
 
 [PDF](../../pdf/mette/EFTA01886068.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886068.pdf)
 
@@ -2448,7 +2416,9 @@ was fun„ have meetings for the past hour. call when you wake
 
 **Subject**: 
 
+i promised to send mette some books as she asked but she wanted them sent to her hotel. which
 
+hotel? that was fun„ have meetings for the past hour. call when you wake
 
 [PDF](../../pdf/mette/EFTA01888506.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888506.pdf)
 
@@ -2478,8 +2448,6 @@ So much looking forward to hanging out with you.
 
 Boris
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01887071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887071.pdf)
 
 ---
@@ -2501,8 +2469,6 @@ I am in NYC tmr early morning. You???
 So much looking forward to hanging out with you.
 
 Boris
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA02007083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007083.pdf)
 
@@ -2553,8 +2519,6 @@ Subject: Re: Thursday night
 Elon? Or anyone you find amusing
 
 Sony for all the typos
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA02001656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001656.pdf)
 
@@ -2802,8 +2766,6 @@ Subject: Re: You
 
 yes a samll biopsy .. not a double mastecomy, its silly
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00671865.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671865.pdf)
 
 ---
@@ -2819,8 +2781,6 @@ yes a samll biopsy .. not a double mastecomy, its silly
 It is not silly.
 
 It is crazyl
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00936516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936516.pdf)
 
@@ -2852,8 +2812,6 @@ It is not silly.
 
 It is crazy!
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01880080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880080.pdf)
 
 ---
@@ -2870,8 +2828,6 @@ It is not silly.
 
 It is crazy!
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01984966.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984966.pdf)
 
 ---
@@ -2886,8 +2842,6 @@ It is crazy!
 
 yes a samll biopsy .. not a double mastccomy, its silly
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01880019-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019-1.pdf)
 
 ---
@@ -2901,8 +2855,6 @@ yes a samll biopsy .. not a double mastccomy, its silly
 **Subject**: Re: You
 
 yes a samll biopsy .. not a double mastccomy, its silly
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01880019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019.pdf)
 
@@ -3204,7 +3156,7 @@ Just called
 
 **Subject**: 
 
-
+should i have mette for tea
 
 [PDF](../../pdf/mette/EFTA01881502.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881502.pdf)
 
@@ -3326,7 +3278,7 @@ will mette be in ny with you
 
 **Subject**: 
 
-
+will mette be in ny with you
 
 [PDF](../../pdf/mette/EFTA01883102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883102.pdf)
 
@@ -3493,8 +3445,6 @@ should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
 **Subject**: Re: FW: A couple of pics
 
 ny, today isalnd tomororww
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00933821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933821.pdf)
 
@@ -3912,8 +3862,6 @@ No„ I think best I not stir . I wish bills response would have been quick To y
 
 Sorry for all the typos .
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00672678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00672678.pdf)
 
 ---
@@ -3943,8 +3891,6 @@ Subject: Re: some interesting books/articles
 I know kahnemsn well
 
 Sony for all the typos .
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA01991647.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991647.pdf)
 
@@ -4118,7 +4064,7 @@ melte is a mess
 
 **Subject**: 
 
-
+mette is a mess
 
 [PDF](../../pdf/mette/EFTA01851476.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01851476.pdf)
 
@@ -4258,7 +4204,7 @@ great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
 
 **Subject**: 
 
-
+great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
 
 [PDF](../../pdf/mette/EFTA01856751.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01856751.pdf)
 

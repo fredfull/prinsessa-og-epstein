@@ -4,3 +4,4 @@ python-dateutil
 pandas
 matplotlib
 numpy
+pytablewriter[toml]

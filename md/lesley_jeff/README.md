@@ -8,6 +8,10 @@
 
 **Subject**: Jes Staley
 
+Cc: ; Jojo fontanilla
+
+• merwin dela cruz
+
 Jes =taley will come see you at 6pm...he is aware of Barbro and the =BB's...l let him know if he would like privacy, you
 
 can step out for 10 =inutes.
@@ -43,8 +47,6 @@ a$qcN tanzt§eStri i6Aw ED-Salk« HA-1El =OTOCI tig§c.
 EFTA_R1_01 355625
 
 EFTA02362652
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/kpm/EFTA02362651.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02362651.pdf)
 
@@ -127,6 +129,10 @@ austin at I ok
 **To:** Jeffrey Epstein
 
 **Subject**: Schedule
+
+Cc: irStanilla; Jojo Fontanilla;
+
+; merwin dela cruz
 
 11am and
 
@@ -212,6 +218,10 @@ i asked if kathrine and ana can do 9 am?
 
 **Subject**: Schedule tomorrow
 
+Cc: irStanilla; Jojo Fontanilla;
+
+; merwin dela cruz
+
 12:00 and IM
 
 1:00 TENTATIVE Appt with Austin Hall (need JE to approve)
@@ -276,8 +286,6 @@ EFTA00991103
 
 is scheduled for 10am today
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00368287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368287.pdf)
 
 ---
@@ -307,6 +315,10 @@ EFTA01920612
 **To:** Jeffrey Epstein
 
 **Subject**: Schedule
+
+Cc: Lynn Fontanilla; Jojo fontanilla;
+
+merwin dela cruz
 
 Mon. June 9, 2014 =Y
 
@@ -410,8 +422,6 @@ EFTA01920533
 
 s scheduled for 10am today
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01920424.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920424.pdf)
 
 ---
@@ -427,8 +437,6 @@ s scheduled for 10am today
 do we have mon apt. , ? otherwise ask or also schedule or another at 12.30 and
 
 ramsey,
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00368282.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368282.pdf)
 
@@ -580,8 +588,6 @@ EFTA_R1_00376378
 
 EFTA01928245
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA01928244.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01928244.pdf)
 
 ---
@@ -593,6 +599,10 @@ EFTA01928245
 **To:** Jeffrey Epstein
 
 **Subject**: Schedule
+
+Cc: Lynn Fontanilla; Jojo fontanilla;
+
+merwin dela cruz
 
 Sun. June 8, 2014 =SJ-NY
 
@@ -657,8 +667,6 @@ Mette?
 EFTA_R1_01763097
 
 EFTA02584380
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA02584379.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584379.pdf)
 
@@ -992,8 +1000,6 @@ breakfast too?)
 
 EFTA00971533
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00971532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971532.pdf)
 
 ---
@@ -1116,8 +1122,6 @@ office,
 
 EFTA00639220
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00639219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639219.pdf)
 
 ---
@@ -1232,8 +1236,6 @@ EFTA01966459
 
 Yes
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00963345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963345.pdf)
 
 ---
@@ -1247,8 +1249,6 @@ Yes
 **Subject**: Re: Schedule
 
 Yes
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00388545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388545.pdf)
 
@@ -1264,8 +1264,6 @@ Yes
 
 I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow?
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00388540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388540.pdf)
 
 ---
@@ -1279,8 +1277,6 @@ I gave you her resume and was awaiting instruction. Would you like to try and se
 **Subject**: Re: Schedule
 
 I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow?
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00646131.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646131.pdf)
 
@@ -1296,8 +1292,6 @@ I gave you her resume and was awaiting instruction. Would you like to try and se
 
 what happend to barbros candidate
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00963340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963340.pdf)
 
 ---
@@ -1312,8 +1306,6 @@ what happend to barbros candidate
 
 what happend to barbros candidate
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00388536-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536-1.pdf)
 
 ---
@@ -1327,8 +1319,6 @@ what happend to barbros candidate
 **Subject**: Re: Schedule
 
 what happend to barbros candidate
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00388536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536.pdf)
 
@@ -1392,8 +1382,6 @@ Joi Ito:
 
 EFTA00963336
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00963335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963335.pdf)
 
 ---
@@ -1455,8 +1443,6 @@ Joi Ito:
 9:20am Arrive Bedford, Jet Aviation (380 Hanscom Dr., Hanscom Field, Bedford, MA,
 
 EFTA00388529
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00388528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388528.pdf)
 
@@ -1618,8 +1604,6 @@ TBD TENTATIVE Appt w/Neil Gershenfeld (Assistant is: Theresa Tomic
 
 EFTA00963741
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00963740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963740.pdf)
 
 ---
@@ -1750,8 +1734,6 @@ TBD TENTATIVE Appt w/The Princess Mette (awaking Reply)
 
 EFTA00963629
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00963628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963628.pdf)
 
 ---
@@ -1824,8 +1806,6 @@ TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply)
 
 EFTA00388578
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00388577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388577.pdf)
 
 ---
@@ -1863,6 +1843,8 @@ EFTA00388791
 **To:** Jeffrey Epstein
 
 **Subject**: Todd Meister
+
+Cc: Lyn & Jojo fontanilla; Jojo fontanilla; Rich Barnett
 
 Todd Meister is confirmed to come see you at 5pm on Thursday
 
@@ -2002,8 +1984,6 @@ TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday a
 
 EFTA00388682
 
- ** Pages have been removed, see source for all pages **
-
 [PDF](../../pdf/mette/EFTA00388681.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388681.pdf)
 
 ---
@@ -2075,8 +2055,6 @@ WED. JUNE 26, 2013 NY
 TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday
 
 EFTA00691749
-
- ** Pages have been removed, see source for all pages **
 
 [PDF](../../pdf/mette/EFTA00691748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00691748.pdf)
 
@@ -2330,7 +2308,33 @@ To: Jeffrey Epstein &=t;jeevacation@gmail.com Will call in half an hour approx
 
 **Subject**: 
 
+Cc:
 
+proposed schedule, rubenstein 26, gergen on 28th Isj st bar=h 29, musk 30 overnight , farkas on jan 2, princess
+
+mette 3 Isj =t barth 4 ,. Isj- pb 10, pb -ny demo inglisas plane ? 12, 17 s=ayton karyna test, 19 paris.
+
+ ••    
+
+T=e information contained in this communication is confidential, may be a=torney-client privileged, may constitute
+
+inside information, and is int=nded only for the use of the addressee. It is the property of Jeffrey Epstein Unau=horized
+
+use, disclosure or copying of this communication or any part th=reof is strictly prohibited and may be unlawful. If you
+
+have received t=is communication in error, please notify us immediately by return e-mail or=by e-mail to , and destroy this communication and all copies t=ereof,
+
+including all attachments. copyright -all rights reserved
+
+--047d7b86e6ec571dc304d1a17d09-- conversation-id 241195 date-last-viewed 0 date-received 1356391429 flags
+
+8590195713 remote-id 265724
+
+1
+
+EFTA_R1_01727620
+
+EFTA02564009
 
 [PDF](../../pdf/mette/EFTA02564009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564009.pdf)
 
@@ -2343,6 +2347,8 @@ To: Jeffrey Epstein &=t;jeevacation@gmail.com Will call in half an hour approx
 **To:** Jeffrey Epstein
 
 **Subject**: Mette
+
+Cc:
 
 Please call Mette tomorrow on her cell...she says she is not available =or the rest of the day..
 
