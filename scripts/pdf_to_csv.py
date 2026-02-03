@@ -158,7 +158,7 @@ def parse_first_email(text):
             continue
 
         # If all header fields are found, the rest is content baby
-        if headers["From"] and headers["To"] and headers["Sent"] and headers["Subject"]:
+        if headers["From"] and headers["To"] and headers["Sent"]:
             headers["Content"] += "\n\n" + clean_text(line)
             continue
 
@@ -238,12 +238,6 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
 
         if email["Content"]:
             email["Content"] = remove_trailing_text(email["Content"])
-
-            # For transparancy, add a disclaimer that there are removed pages here:
-            if len(pdf.pages) > 2:
-                email["Content"] += (
-                    "\n\n ** Pages have been removed, see source for all pages **"
-                )
 
         print(f"Successfully parsed {pdf_file} ")
         emails.append(email)
