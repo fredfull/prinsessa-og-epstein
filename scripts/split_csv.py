@@ -7,7 +7,7 @@ from datetime import datetime
 import re
 import os
 
-CSV_FILE=os.environ["CSV_FILE"]
+CSV_FILE = os.environ["CSV_FILE"]
 csv_dir = os.path.dirname(CSV_FILE)
 
 df = pd.read_csv(CSV_FILE)
@@ -161,7 +161,7 @@ for i, row in df.iterrows():
 
 
 def all_correspondence(p1, p2):
-    q = f"(From == '{p1}' and To == '{p2}') or (From == '{p2}' and To == '{p1}')"
+    q = f"((From == '{p1}' and To == '{p2}') or (From == '{p2}' and To == '{p1}')) and Sent.notna()"
     return df.query(q)
 
 

@@ -1,7 +1,12 @@
 {
     "pdf": {
-        "successfull": 2,
-        "total": 2,
-        "failed": []
+        "number_of_successfull": 3,
+        "number_of_failed": 0,
+        "number_of_duplicates": 1,
+        "total_unique": 3,
+        "failed": [],
+        "duplicates": [
+            "test/pdf/copy/EFTA01919014.pdf"
+        ]
     }
 }

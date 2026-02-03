@@ -240,28 +240,6 @@ EFTA02373909
 
 ---
 
-### 2013-11-13 21:54:00+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: fyi
-
-http://www.hellomagazine.coqroyalty/2013111315637/princess-mette-marit-neck-operation/ Will keep you posted. I am talking to Hakkon non-sto= and he will be with her during a surgery.
-
-B
-
-1
-
-EFTA_R1_01380233
-
-EFTA02373909
-
-[PDF](../../pdf/mette-marit/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
-
----
-
 ### 2013-11-10 18:06:29+00:00
 
 **From:** Jeffrey Epstein
@@ -1058,32 +1036,6 @@ i will be there from 10-13
 
 ---
 
-### 2012-12-28 14:24:59+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: RE: Re:
-
-From where are you arriving?
-
-NYC?
-
-From: Jeffrey Epstein [mailto:jeevacation@gmall.com]
-
-Sent: Friday, December 28, 2012 10:23 PM
-
-To: Boris Nikolic
-
-Subject: Re:
-
-i will be there from 10-13
-
-[PDF](../../pdf/mette/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
-
----
-
 ### 2012-12-28 14:22:38+00:00
 
 **From:** Jeffrey Epstein
@@ -1095,20 +1047,6 @@ i will be there from 10-13
 i will be there from 10-13
 
 [PDF](../../pdf/kronprinsessen/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
-
----
-
-### 2012-12-28 14:22:38+00:00
-
-**From:** Jeffrey Epstein
-
-**To:** Boris Nikolic
-
-**Subject**: Re:
-
-i will be there from 10-13
-
-[PDF](../../pdf/mette/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
 
 ---
 
@@ -1180,40 +1118,6 @@ Breakfast??
 
 ---
 
-### 2012-12-28 14:15:35+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: RE: Re:
-
-Please let me see what can I do .
-
-Mette — would breakfast work for you? Can you leave later in a day.
-
-Please send me dates when you are arrive/leave I
-
-Would LOVE to see you both!
-
-B
-
-From: Jeffrey Epstein [mailtoleevacation@gmail.com]
-
-Sent: Friday, December 28, 2012 4:51 PM
-
-To: H.K.H. Kronprinsessen
-
-Cc: Boris Nikolic
-
-Subject: Re:
-
-Breakfast??
-
-[PDF](../../pdf/mette/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
-
----
-
 ### 2012-12-28 13:24:59+00:00
 
 **From:** Boris Nikolic
@@ -1240,32 +1144,6 @@ i will be there from 10-13
 
 ---
 
-### 2012-12-28 13:24:59+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: RE: Re:
-
-From where are you arriving?
-
-NYC?
-
-From: Jeffrey Epstein [mailto:jeevacation©gmail.corn]
-
-Sent: Friday, December 28, 2012 10:23 PM
-
-To: Boris Nikolic
-
-Subject: Re:
-
-i will be there from 10-13
-
-[PDF](../../pdf/mette/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
-
----
-
 ### 2012-12-28 13:22:38+00:00
 
 **From:** Jeffrey Epstein
@@ -1277,20 +1155,6 @@ i will be there from 10-13
 i will be there from 10-13
 
 [PDF](../../pdf/kronprinsessen/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
-
----
-
-### 2012-12-28 13:22:38+00:00
-
-**From:** Jeffrey Epstein
-
-**To:** Boris Nikolic
-
-**Subject**: Re:
-
-i will be there from 10-13
-
-[PDF](../../pdf/mette/EFTA01912843.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912843.pdf)
 
 ---
 
@@ -1335,50 +1199,6 @@ Subject: Re:
 Breakfast??
 
 [PDF](../../pdf/kronprinsessen/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
-
----
-
-### 2012-12-28 13:16:00+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: RE: Re:
-
-Please let me see what ca= I do .
-
-<=p>
-
-Mette — would break=ast work for you? Can you leave later in a day.
-
-<=p>
-
-Please send me dates when=you are arrive/leave!
-
-<=p>
-
-Would LOVE to see you bot=!
-
-<=p>
-
-B
-
-<=p>
-
-From: Jeffrey =pstein Imailto:jeevacation@gmailcoml
-
-Sent: Friday, December 28, 2012 4:51 PM
-
-To: H.K.H. Kronprinsessen
-
-Cc: Boris Nikolic
-
-Subject: Re:
-
-Breakfast??
-
-[PDF](../../pdf/mette/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
 
@@ -1450,40 +1270,6 @@ Breakfast??
 
 ---
 
-### 2012-12-28 13:15:35+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: RE: Re:
-
-Please let me see what can I do .
-
-Mette — would breakfast work for you? Can you leave later in a day.
-
-Please send me dates when you are arrive/leave!
-
-Would LOVE to see you both!
-
-B
-
-From: Jeffrey Epstein [mailto:jeevacation@gmail.com]
-
-Sent: Friday, December 28, 2012 4:51 PM
-
-To: H.K.H. Kronprinsessen
-
-Cc: Boris Nikolic
-
-Subject: Re:
-
-Breakfast??
-
-[PDF](../../pdf/mette/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
-
----
-
 ### 2012-12-28 08:33:37+00:00
 
 **From:** Jeffrey Epstein
@@ -1503,28 +1289,6 @@ Subject: Re:
 Breakfast??
 
 [PDF](../../pdf/kronprinsessen/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
-
----
-
-### 2012-12-28 08:33:37+00:00
-
-**From:** Jeffrey Epstein
-
-**To:** Boris Nikolic
-
-**Subject**: Re: RE: Re:
-
-Sent: Friday, December 28, 2012 4:51 PM
-
-To: H.K.H. Kronprinsessen
-
-Cc: Boris Nikolic
-
-Subject: Re:
-
-Breakfast??
-
-[PDF](../../pdf/mette/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
 
 ---
 
@@ -4323,38 +4087,6 @@ EFTA_R1_00528017
 EFTA02021990
 
 [PDF](../../pdf/mette/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
-
----
-
-### 2011-02-28 20:38:01+00:00
-
-**From:** Boris Nikolic
-
-**To:** Jeffrey Epstein
-
-**Subject**: March
-
-Where are you March 20 or so?
-
-A friend of mine is visiting NYC and I would we great that we meet.
-
-She is GREAT! Twisted ;)
-
-Not a typical royalty.
-
-http://www.g_oogle.corn/images?h1=en&q=Mette-
-
-marit&bav on. I ,or.&wrapid=tlifl 29892896238011&umcie=UTF-
-
-88zsource univ&se-X&ei=-QxVsTRVFEsI,58AbMzOC6Cw&ved-0CDEQsAQ&biw58chih
-
--66S
-
-EFTA_R1_00528017
-
-EFTA02021990
-
-[PDF](../../pdf/mette-marit/EFTA02021990.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021990.pdf)
 
 ---
 
